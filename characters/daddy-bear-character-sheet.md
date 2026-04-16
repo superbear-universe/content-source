@@ -4,7 +4,7 @@ title: "Daddy Bear"
 parent: "Characters"
 ---
 
-# Daddy Bear â€” Character Sheet
+# Daddy Bear — Character Sheet
 
 ## Basic Information
 - **Name:** Daddy Bear (true name unknown)
@@ -18,7 +18,7 @@ parent: "Characters"
 ---
 
 # BEFORE THE FALL  
-## Daddy Bear â€” The Bear-Bound Guardian
+## Daddy Bear — The Bear-Bound Guardian
 
 ### Appearance (Before the Rupture)
 Before his fall, Daddy Bear was **human**, but visibly shaped by the power he carried.
@@ -26,7 +26,7 @@ Before his fall, Daddy Bear was **human**, but visibly shaped by the power he ca
 - **Build:** Large, broad, heavy-set; physically imposing without aggression
 - **Age:** Looking middle-aged to older, with signs of wisdom and experience, but due to his nature could be much older
 - **Height:** Tall, solidly grounded
-- **Posture:** Upright, steady, immovable â€” as if rooted to the ground
+- **Posture:** Upright, steady, immovable — as if rooted to the ground
 - **Facial Hair:** Thick, full beard, often slightly wild
 - **Hair:** Dark, coarse, streaked with gray
 - **Eyes:** Deep-set, watchful, carrying quiet authority
@@ -41,7 +41,7 @@ Before his fall, Daddy Bear was **human**, but visibly shaped by the power he ca
   - Clothing chosen to contain power, not display it
 
 **Overall Impression:**  
-Daddy Bear looked like a man who had been shaped by something vast. Not monstrous, not animal â€” but undeniably *bear-adjacent*. People felt steadier near him, as if the ground itself were more reliable.
+Daddy Bear looked like a man who had been shaped by something vast. Not monstrous, not animal — but undeniably *bear-adjacent*. People felt steadier near him, as if the ground itself were more reliable.
 
 ---
 
@@ -91,24 +91,24 @@ It passed through him.
 It shaped him.
 But he never claimed ownership.
 
-That belief â€” quietly â€” was what made him vulnerable.
+That belief — quietly — was what made him vulnerable.
 
 ---
 
 ## THE RUPTURE
-Bill forcibly stole Daddy Bearâ€™s active power.
+Bill forcibly stole Daddy Bear's active power.
 
 The bear-bound manifestation collapsed instantly.
 
 ---
 
 # AFTER THE FALL  
-## Daddy Bear â€” The Reduced Witness
+## Daddy Bear — The Reduced Witness
 
 ### Appearance (After the Rupture)
-After losing his power, Daddy Bear is unmistakably **human** â€” and unmistakably old.
+After losing his power, Daddy Bear is unmistakably **human** — and unmistakably old.
 
-- **Build:** Exceptionally powerfully built â€” massive barrel chest, extremely broad shoulders, thick muscular arms and forearms. Built like an aged strongman: substantial muscle mass with a natural softening over it, not lean but unmistakably powerful.
+- **Build:** Exceptionally powerfully built — massive barrel chest, extremely broad shoulders, thick muscular arms and forearms. Built like an aged strongman: substantial muscle mass with a natural softening over it, not lean but unmistakably powerful.
 - **Age:** Early-to-mid sixties
 - **Height:** Tall, upright, grounded
 - **Posture:** Solid and steady; the effortless stillness of a very large man who doesn’t need to perform his size
@@ -117,10 +117,10 @@ After losing his power, Daddy Bear is unmistakably **human** â€” and unmist
 - **Eyes:** Deep-set, dark grey-green, watchful and present, heavy with memory
 - **Skin:** Warm and weathered (#b8895a)
 - **Body Hair:** Dense grey chest hair visible at open collar; grey hair on forearms
-- **Bear-Like Features:** None remaining â€” but the scale and presence of the body itself carries the impression
+- **Bear-Like Features:** None remaining — but the scale and presence of the body itself carries the impression
 
 **Default Clothing:**  
-Tight dark forest green flannel shirt (#2d4a2a) with subtle dark plaid, two to three buttons open at the collar, sleeves rolled to mid-forearm. The fit shows the breadth of his chest and shoulders clearly â€” fabric pulled taut across the chest and upper arms. Faded dark denim jeans (#1a2535), filling out at the thighs. Worn brown leather work boots (#7a5535).
+Tight dark forest green flannel shirt (#2d4a2a) with subtle dark plaid, two to three buttons open at the collar, sleeves rolled to mid-forearm. The fit shows the breadth of his chest and shoulders clearly — fabric pulled taut across the chest and upper arms. Faded dark denim jeans (#1a2535), filling out at the thighs. Worn brown leather work boots (#7a5535).
 
 **Overall Impression:**  
 A man who was once immense and remains so. Diminished by age and loss rather than by illness. Still physically imposing enough to stop you. The mass is there. The power that animated it is gone.
@@ -145,7 +145,7 @@ Only awareness remains.
 - **None (Active):** Cannot initiate, guide, or interrupt transformation
 - **Residual Awareness:** Senses imbalance but cannot correct it
 - **Witnessing:** Recognizes potential without being able to act
-- **Memory of Power:** Understands exactly what was lost â€” and why
+- **Memory of Power:** Understands exactly what was lost — and why
 
 He is not powerless because he is weak.
 
@@ -188,7 +188,7 @@ He does not choose heroes.
 He does not guide them.
 He does not intervene.
 
-He only places possibility into the world â€” and steps away.
+He only places possibility into the world — and steps away.
 
 ---
 
@@ -201,7 +201,7 @@ Only power that has:
 - fully embodied
 - and offered without expectation
 
-may ever return to him â€” not as dominance, but as **renewed custodianship**.
+may ever return to him — not as dominance, but as **renewed custodianship**.
 
 Whether this ever happens is uncertain.
 
@@ -218,7 +218,7 @@ And that uncertainty is essential.
 
 ---
 
-*This character sheet defines Daddy Bear as a human figure whose bear-like traits were manifestations of power â€” and whose loss leaves him fully, painfully human.*
+*This character sheet defines Daddy Bear as a human figure whose bear-like traits were manifestations of power — and whose loss leaves him fully, painfully human.*
 
 ---
 

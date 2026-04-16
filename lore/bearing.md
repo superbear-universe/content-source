@@ -117,11 +117,11 @@ When a person knowingly chooses a life that includes:
 - Responsibility
 - Standing beside a superhero
 
-â€¦a normal body is no longer sufficient.
+…a normal body is no longer sufficient.
 
 In these cases, Bearing continues beyond physical embodiment.
 
-Nickâ€™s transformation into **Supercub** happens because he chooses to be with Mike openly, knowing the cost. Loving Superbear requires more than strength alone — it requires the ability to survive the world that comes with him.
+Nick's transformation into **Supercub** happens because he chooses to be with Mike openly, knowing the cost. Loving Superbear requires more than strength alone — it requires the ability to survive the world that comes with him.
 
 The superpowers that emerge are not rewards.
 They are **requirements**.
@@ -141,7 +141,7 @@ When someone chooses Bearing in order to:
 - Refuse to live hidden or protected at a distance
 - Accept shared danger and responsibility
 
-â€¦the scope of the transformation expands naturally.
+…the scope of the transformation expands naturally.
 
 Nick becomes Supercub not because love fuels magic, but because love demands a life that embodiment alone cannot support.
 
@@ -231,7 +231,7 @@ Consent-based bearing emerges when power is **invited**, not imposed.
 Consent-based bearing:
 - Preserves choice throughout transformation
 - Allows hesitation, reflection, and refusal
-- Strengthens the individualâ€™s sense of self
+- Strengthens the individual's sense of self
 
 The resulting bearer becomes *more themselves*, not less.
 
@@ -240,7 +240,7 @@ The resulting bearer becomes *more themselves*, not less.
 The relationship between Superbear and Supercub demonstrates **consent-based bearing within an intimate partnership**.
 
 Important constraints:
-- Supercubâ€™s power is not derived from Superbear
+- Supercub's power is not derived from Superbear
 - Romantic attachment does not grant authority over transformation
 - Bearing occurs only through explicit, informed choice
 - Love may clarify desire, but it never substitutes for consent

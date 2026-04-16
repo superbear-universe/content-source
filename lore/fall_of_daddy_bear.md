@@ -22,18 +22,18 @@ It can only be **invited**, **transferred**, **corrupted**, or **freely gifted**
 Transformation is not a transaction.  
 It is a **relationship** between belief, consent, and embodiment.
 
-When that relationship is violated, power still manifests â€” but in broken, coercive forms.
+When that relationship is violated, power still manifests — but in broken, coercive forms.
 
 -----
 
-## Daddy Bear â€” The Wizard-Guardian (Before the Rupture)
+## Daddy Bear — The Wizard-Guardian (Before the Rupture)
 
 Before his fall, **Daddy Bear** was an **authoritative, bear-shaped wizard and guardian**.
 
 He was not a public superhero, nor a ruler or deity.  
-He was a **living threshold** â€” a custodial figure who embodied the rules of transformation themselves.
+He was a **living threshold** — a custodial figure who embodied the rules of transformation themselves.
 
-Daddy Bearâ€™s authority was structural, not physical:
+Daddy Bear's authority was structural, not physical:
 
 - He regulated *when* and *how* transformation could occur
 - He opened thresholds but never pushed anyone through
@@ -52,11 +52,11 @@ He **held space** for them.
 
 -----
 
-## Bill â€” The One Who Refused the Invitation
+## Bill — The One Who Refused the Invitation
 
 Bill possessed presence, confidence, and certainty. On the surface, he appeared ready.
 
-When Daddy Bear opened a **Bear You Out** threshold for Bill, it was not a gift â€” it was an invitation. A moment that required trust and consent.
+When Daddy Bear opened a **Bear You Out** threshold for Bill, it was not a gift — it was an invitation. A moment that required trust and consent.
 
 Bill rejected the premise.
 
@@ -70,11 +70,11 @@ Where others stepped forward willingly, Bill **seized**.
 
 ## The Forced Transfer
 
-Bill forcibly extracted Daddy Bearâ€™s power.
+Bill forcibly extracted Daddy Bear's power.
 
 This act shattered the central law of transformation:
 
-> **Power must be received â€” never taken.**
+> **Power must be received — never taken.**
 
 What Bill stole was **active, directive authority**:
 
@@ -94,7 +94,7 @@ The moment power was taken by force:
 - Integration failed
 - The system fractured
 
-Billâ€™s transformation completed â€” but corrupted.
+Bill's transformation completed — but corrupted.
 
 -----
 
@@ -127,7 +127,7 @@ Butch Bear is **embodiment without consent**.
 
 ## Daddy Bear After the Theft
 
-Daddy Bear survived the violation â€” but not intact.
+Daddy Bear survived the violation — but not intact.
 
 Power stolen by force **locks out the original bearer**. Daddy Bear could not reclaim what was taken, nor initiate transformation again.
 
@@ -145,7 +145,7 @@ He became a former institution walking as a person.
 
 -----
 
-## The Rainbow Dust â€” Daddy Bearâ€™s Final Act
+## The Rainbow Dust — Daddy Bear's Final Act
 
 In the aftermath of the theft, Daddy Bear used **the last of his remaining power** to condense the residual potential into an inert, unstructured form: **rainbow-colored transformative dust**.
 
@@ -161,7 +161,7 @@ The dust itself:
 - Cannot act without consent
 - Must be invited into a new body
 
-This act did not repair the system â€” it **preserved the possibility of renewal**.
+This act did not repair the system — it **preserved the possibility of renewal**.
 
 -----
 
@@ -178,7 +178,7 @@ These rules do not contradict other transformations. They apply only to restorat
 
 -----
 
-## Power Bear Coffee â€” The Vessel of Choice
+## Power Bear Coffee — The Vessel of Choice
 
 Daddy Bear mixed the rainbow dust into **Power Bear Coffee**.
 
@@ -193,7 +193,7 @@ Coffee invites choice.
 
 This stands in direct opposition to:
 
-- Butch Bearâ€™s harnesses
+- Butch Bear's harnesses
 - Wristbands
 - Forced markings
 
@@ -202,7 +202,7 @@ He releases it into the world and steps back.
 
 -----
 
-## Daddy Bearâ€™s Reduced Life
+## Daddy Bear's Reduced Life
 
 With no power and no authority, Daddy Bear fades from notice.
 
@@ -214,11 +214,11 @@ He becomes:
 
 He lives at a cabin by a lake, northwest of the city. Old pines, a stone chimney. Removed from the city entirely. He watches patterns from a distance. He does not choose successors. He does not intervene.
 
-He believes again â€” but only in others.
+He believes again — but only in others.
 
 -----
 
-## Constraint B â€” The Rule of Gifted Restoration
+## Constraint B — The Rule of Gifted Restoration
 
 Daddy Bear **may not ask** for power.
 He **may not seek** restoration.
@@ -252,7 +252,7 @@ This rule preserves humility, consequence, and consent.
 |Catalyst      |Coffee (choice)|Harness (ownership)|
 |Presence      |Reassuring     |Oppressive         |
 
-Daddy Bear exists between them â€” the cost of the first broken consent.
+Daddy Bear exists between them — the cost of the first broken consent.
 
 -----
 
