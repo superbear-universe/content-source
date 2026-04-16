@@ -3,6 +3,7 @@ layout: default
 title: "Lore"
 nav_order: 2
 has_children: true
+nav_exclude: true
 ---
 
 # Lore
