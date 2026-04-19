@@ -1,6 +1,6 @@
 ---
-title: CH14: TBD
-subtitle: "Superbear: chapter 14
+title: "CH14: TBD"
+subtitle: "Superbear: chapter 14"
 date: 2026-04-19 19:04:00
 ---
 
