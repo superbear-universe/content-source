@@ -1,7 +1,7 @@
 ---
 title: CH14: TBD
 subtitle: "Superbear: chapter 14
-date: 2026-04-20 19:04:00
+date: 2026-04-19 19:04:00
 ---
 
 Dan had been in the city four weeks, and the hotel room had started to feel like somewhere he lived.
