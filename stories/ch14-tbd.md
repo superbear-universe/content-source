@@ -72,7 +72,7 @@ That earned him a smile. Not a big one. A warm, slightly crooked thing at one co
 
 "A bit."
 
-"Good." Nick pushed off the tree with a slow economy Dan felt in his spine. He closed half the distance between them in one step. "Nervous is honest."
+“Good.” Nick pushed off the tree and closed half the distance in one unhurried step. “Nervous is honest.”
 
 Up close he was, somehow, even bigger. Dan had to tip his head slightly to keep meeting his eyes. The violet in them, which he had noticed from further off and told himself was a trick of the lamp, was not a trick of the lamp. It was the colour Nick's eyes were. Dan's brain registered that as a thing to think about later, possibly, and set it aside.
 
