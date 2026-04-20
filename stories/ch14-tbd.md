@@ -4,6 +4,8 @@ subtitle: "Superbear Chapter 14"
 date: 2026-04-19 19:04:00
 ---
 
+![](/website/assets/images/ch14-tbd/001.png)
+
 Dan had been in the city four weeks, and the hotel room had started to feel like somewhere he lived.
 
 It was serviced, but it had a kitchenette he used and a balcony he didn't. He cooked sometimes. Other nights he ate from a paper bag at the small table by the window and watched the lights come on across the street. The job was fine. The job had him here for another six weeks and then somewhere else. He was good enough at his work that nobody asked him too many questions, and he was grateful for that.
@@ -19,6 +21,8 @@ His loneliness was specific: a body he had lived inside for twenty-eight years w
 He scrolled.
 
 The profile stopped him on a long scroll. His eye had passed it before his mind caught up.
+
+![](/website/assets/images/ch14-tbd/002.png)
 
 No face. Black latex across a wide chest. A gloved hand against the same black. The username was **blackrubber_04**. The text was three lines. *Leather. Rubber. Dominant.* No other detail. A location tag that placed the profile within a mile of his hotel.
 
