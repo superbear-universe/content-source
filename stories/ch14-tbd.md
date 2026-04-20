@@ -72,7 +72,7 @@ That earned him a smile. Not a big one. A warm, slightly crooked thing at one co
 
 "A bit."
 
-“Good.” Nick pushed off the tree and closed half the distance in one unhurried step. “Nervous is honest.”
+"Good." Nick pushed off the tree and closed half the distance in one unhurried step. "Nervous is honest."
 
 Up close he was, somehow, even bigger. Dan had to tip his head slightly to keep meeting his eyes. The violet in them, which he had noticed from further off and told himself was a trick of the lamp, was not a trick of the lamp. It was the colour Nick's eyes were. Dan's brain registered that as a thing to think about later, possibly, and set it aside.
 
@@ -80,7 +80,9 @@ Up close he was, somehow, even bigger. Dan had to tip his head slightly to keep 
 
 Dan opened his mouth to say something wry. That was the reflex — the small self-deprecating joke that kept a conversation at arm's length. He had been building that reflex for twenty-eight years. It had kept him safe.
 
-"The way your profile felt," he said instead. "I don't know how to explain it."
+He closed his mouth. Opened it again.
+
+"The way your profile felt," he said. "I don't know how to explain it."
 
 "Try."
 
@@ -90,11 +92,11 @@ Dan opened his mouth to say something wry. That was the reflex — the small sel
 
 Nick's hand came up between them. The back of his fingers brushed Dan's jaw, slow, deliberate, the skin warm. Dan's breath caught and Nick felt it catch — his eyes moved over Dan's face with something that looked a lot like fondness, and the smile came back, bigger this time.
 
-"You're going to be trouble," Nick said.
+"Most people don't answer that honestly."
 
-"I'm really not."
+"I surprised myself."
 
-"You are. You just don't know it yet."
+"I noticed."
 
 He let his hand drop, and the absence of it was immediately the loudest thing in Dan's body.
 
@@ -284,12 +286,12 @@ Mike could have moved. He had been fast enough and strong enough. He had stayed 
 
 He took his phone out of the hoodie pocket.
 
-He opened the thread with Andrew. The last message in it was from nine months ago, a photo of an espresso in Rome, captioned *ti penso.*
+He opened the thread with Andrew. The last message was his own, from six weeks ago — a mid-flight selfie, him and Nick in full suits against an open sky, Mike pulling a face at the camera, Nick laughing beside him. Andrew had sent back three laughing emojis.
 
-Mike typed with both thumbs.
+Mike looked at it for a moment. Then he typed.
 
 *I need your help. It's Nick.*
 
-He sat with the message a second. Then he sent it.
+He sent it.
 
 He put the phone back in the hoodie pocket. He stood, and he walked back up the path, past the fountain, out of the park.
