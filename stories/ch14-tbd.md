@@ -4,7 +4,7 @@ subtitle: "Superbear Chapter 14"
 date: 2026-04-19 19:04:00
 ---
 
-![](/website/assets/images/ch14-tbd/001.png)
+[![](/website/assets/images/ch14-tbd/001.png)](/website/assets/images/ch14-tbd/001.png)
 
 Dan had been in the city four weeks, and the hotel room had started to feel like somewhere he lived.
 
@@ -22,7 +22,7 @@ He scrolled.
 
 The profile stopped him on a long scroll. His eye had passed it before his mind caught up.
 
-![](/website/assets/images/ch14-tbd/002.png)
+[![](/website/assets/images/ch14-tbd/002.png)](/website/assets/images/ch14-tbd/002.png)
 
 No face. Black latex across a wide chest. A gloved hand against the same black. The username was **blackrubber_04**. The text was three lines. *Leather. Rubber. Dominant.* No other detail. A location tag that placed the profile within a mile of his hotel.
 
@@ -48,11 +48,15 @@ The park on King was quieter than it should have been for the hour. The lamps al
 
 He walked past the fountain. The path narrowed past it, lamps fewer, trees closer to the verge.
 
+[![](/website/assets/images/ch14-tbd/003.png)](/website/assets/images/ch14-tbd/003.png)
+
 A bench on his left held a big man in a dark hoodie, beard just visible in the shadow of the hood. Dan clocked him, kept walking. A man on a bench was just a man on a bench.
 
 Nick was past the next lamp, in the dark edge of its circle, leaning against a tree.
 
 The photos had been accurate about the latex and said nothing about the rest.
+
+[![](/website/assets/images/ch14-tbd/004.png)](/website/assets/images/ch14-tbd/004.png)
 
 He was enormous. Dan's first coherent thought as he got closer was that the profile had been undersold. The tank was high-gloss black, fitted over a chest that was the size of two chests. A black belt at the waist. Dark cargo trousers. Heavy boots. Long strawberry-blonde hair, darker in this light than it would have been in day. A thick auburn beard. He held a stillness that made Dan, approaching, feel loud.
 
@@ -95,6 +99,8 @@ He closed his mouth. Opened it again.
 "It doesn't."
 
 Nick's hand came up between them. The back of his fingers brushed Dan's jaw, slow, deliberate, the skin warm. Dan's breath caught and Nick felt it catch — his eyes moved over Dan's face with something that looked a lot like fondness, and the smile came back, bigger this time.
+
+[![](/website/assets/images/ch14-tbd/005.png)](/website/assets/images/ch14-tbd/005.png)
 
 "Most people don't answer that honestly."
 
