@@ -1,6 +1,6 @@
 ---
-title: "CH14: TBD"
-subtitle: "Superbear: chapter 14"
+title: "A Good Boy"
+subtitle: "Superbear Chapter 14"
 date: 2026-04-19 19:04:00
 ---
 
