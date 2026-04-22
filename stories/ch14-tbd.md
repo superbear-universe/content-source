@@ -138,6 +138,8 @@ He was. He was aware, with a kind of bright specific clarity, that he had not be
 
 Nick took his wrist. Not a grab — a close of fingers around it, thumb finding the pulse there, the contact warm through the latex of the glove. Dan's pulse did what a pulse does when a man like Nick takes hold of it.
 
+[![](/website/assets/images/ch14-tbd/006.png)](/website/assets/images/ch14-tbd/006.png)
+
 "What do you want tonight?"
 
 Dan looked up at him. He had a whole collection of answers he had used in this kind of moment in the past, most of them jokes, all of them ways of pretending he didn't want very much. He felt none of them rise.
@@ -161,6 +163,8 @@ There was weight in the question Dan didn't fully understand. He understood enou
 "Yes," he said.
 
 Nick bent his head and kissed him.
+
+[![](/website/assets/images/ch14-tbd/007.png)](/website/assets/images/ch14-tbd/007.png)
 
 The kiss was warm and steady and entirely certain of itself. Dan kissed him back, and it was, for a second, just a kiss. A better one than he was used to, but a kiss.
 
