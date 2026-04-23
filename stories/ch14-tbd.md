@@ -200,6 +200,8 @@ Then the changes started.
 
 They began under his ribs. A fullness, a density, building in long rolling increments, the chronic low softness he had carried his whole adult life giving way to something heavier and more present. His shirt tightened across him. The grey tee had no more give. He could feel the fabric straining against his chest as his chest became something else, something fuller, denser, more there.
 
+[![](/website/assets/images/ch14-tbd/008.png)](/website/assets/images/ch14-tbd/008.png)
+
 A sound came out of him. Small, startled.
 
 Nick's hand slid from his face to the back of his neck, warm and sure. "Good boy."
@@ -207,6 +209,8 @@ Nick's hand slid from his face to the back of his neck, warm and sure. "Good boy
 His shoulders pushed wide. He felt the air displace around him. He had always taken up a certain amount of space and apologised for it, quietly, without knowing he was apologising. The shoulders coming in now did not apologise. They widened, and the overshirt split at the seam under his arm with a small clean sound.
 
 His arms filled. The weight of them changed. He lifted one and it was heavier than it should have been, his hand at the end of it larger, his fingers thicker. He looked at the hand like it was someone else's. It wasn't.
+
+[![](/website/assets/images/ch14-tbd/009.png)](/website/assets/images/ch14-tbd/009.png)
 
 "I can't — " he said. "Nick, I can't — "
 
@@ -220,9 +224,13 @@ He breathed. Nick breathed with him, steady, and the steadiness of it was a thin
 
 The warmth moved down into his thighs, his calves, the long muscles along the backs of his legs. He felt himself plant, in a way he had never planted. His weight shifted down onto his feet differently.
 
+[![](/website/assets/images/ch14-tbd/010.png)](/website/assets/images/ch14-tbd/010.png)
+
 The softness he had carried without confidence was still there. It had reorganised. He was large and solid. The chubby weight was still part of him, and it had taken on authority: the weight of a body that occupied its space without argument.
 
 His jaw prickled. He brought a hand up, slower this time, aware of its new weight, and felt the beard thickening along his face, filling in, settling into something full and deliberate. The beard had been his favourite part of himself. It was becoming more of what it had been trying to be all along.
+
+[![](/website/assets/images/ch14-tbd/011.png)](/website/assets/images/ch14-tbd/011.png)
 
 Under all of it, a quieter thing.
 
@@ -235,6 +243,9 @@ The background noise he had lived with his whole life went quiet. The low consta
 Nick shuddered against him.
 
 Something was happening at the surface of him now. The grey tee was gone. He couldn't say when. Black latex lay against his chest instead, high-gloss, fitting itself to each new contour as it arrived. The overshirt was gone too. Over the latex, leather: straps crossing his chest in an X, buckles catching the lamp light, the harness settling against him with the weight of something designed to be worn. His jeans were no longer his jeans. Leather trousers, close-fitted, the material warm and giving where his thighs pressed against it. His boots felt heavier on his feet.
+
+| [![](/website/assets/images/ch14-tbd/012.png)](/website/assets/images/ch14-tbd/012.png) | [![](/website/assets/images/ch14-tbd/013.png)](/website/assets/images/ch14-tbd/013.png) |
+| --- | --- |
 
 He looked down at himself once, over Nick's shoulder, and the sight of his own body did not frighten him. It fit. That was the worst of it. It fit.
 
