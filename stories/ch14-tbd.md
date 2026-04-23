@@ -244,8 +244,12 @@ Nick shuddered against him.
 
 Something was happening at the surface of him now. The grey tee was gone. He couldn't say when. Black latex lay against his chest instead, high-gloss, fitting itself to each new contour as it arrived. The overshirt was gone too. Over the latex, leather: straps crossing his chest in an X, buckles catching the lamp light, the harness settling against him with the weight of something designed to be worn. His jeans were no longer his jeans. Leather trousers, close-fitted, the material warm and giving where his thighs pressed against it. His boots felt heavier on his feet.
 
-| [![](/website/assets/images/ch14-tbd/012.png)](/website/assets/images/ch14-tbd/012.png) | [![](/website/assets/images/ch14-tbd/013.png)](/website/assets/images/ch14-tbd/013.png) |
-| --- | --- |
+To display images side-by-side in Jekyll/GitHub Pages, use HTML table syntax:
+
+<div style="display: flex; gap: 1rem;">
+    <div style="flex: 1;">[![](/website/assets/images/ch14-tbd/012.png)](/website/assets/images/ch14-tbd/012.png)</div>
+    <div style="flex: 1;">[![](/website/assets/images/ch14-tbd/013.png)](/website/assets/images/ch14-tbd/013.png)</div>
+</div>
 
 He looked down at himself once, over Nick's shoulder, and the sight of his own body did not frighten him. It fit. That was the worst of it. It fit.
 
