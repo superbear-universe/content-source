@@ -281,11 +281,15 @@ A large bearded man, solidly built, the chubby weight he had always carried now 
 
 Nick stepped back half a pace and looked at him.
 
+[![](/website/assets/images/ch14-tbd/015.png)](/website/assets/images/ch14-tbd/015.png)
+
 The pleasure was already rolling up through Nick's body in long warm waves. He breathed through it, slow, and let it settle.
 
 He looked past the tree, down the path, toward the lamps and the bench past the fountain.
 
 He had known the man on the bench was there since he had arrived. He had chosen to let him watch.
+
+[![](/website/assets/images/ch14-tbd/016.png)](/website/assets/images/ch14-tbd/016.png)
 
 He turned his head and looked directly down the path. Directly at the bench.
 
@@ -294,6 +298,8 @@ He held the look for a count longer than a man casually scanning would have held
 Then he walked the other way, the new one falling in behind him, and the trees took them.
 
 ---
+
+[![](/website/assets/images/ch14-tbd/017.png)](/website/assets/images/ch14-tbd/017.png)
 
 Mike did not move.
 
@@ -315,6 +321,8 @@ He took his phone out of the hoodie pocket.
 
 He opened the thread with Andrew. The last message was his own, from six weeks ago — a mid-flight selfie, him and Nick in full suits against an open sky, Mike pulling a face at the camera, Nick laughing beside him. Andrew had sent back three laughing emojis.
 
+[![](/website/assets/images/ch14-tbd/018.png)](/website/assets/images/ch14-tbd/018.png)
+
 Mike looked at it for a moment. Then he typed.
 
 *I need your help. It's Nick.*
@@ -322,3 +330,5 @@ Mike looked at it for a moment. Then he typed.
 He sent it.
 
 He put the phone back in the hoodie pocket. He stood, and he walked back up the path, past the fountain, out of the park.
+
+[![](/website/assets/images/ch14-tbd/019.png)](/website/assets/images/ch14-tbd/019.png)
