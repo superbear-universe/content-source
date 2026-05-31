@@ -5,7 +5,7 @@ date: 2026-01-26 19:04:00
 author: SERVE-714
 ---
 
-_Editor note: This story is written by SERVE-714, and contains elements from the SERVE universe. [More info on their wiki](https://serve.fandom.com/wiki/SERVE_Wiki).
+_Editor note: This story is written by SERVE-714, and contains elements from the SERVE universe. [More info on their wiki](https://serve.fandom.com/wiki/SERVE_Wiki)._
 
 *Part One*
 
