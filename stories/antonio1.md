@@ -4,6 +4,8 @@ subtitle: Thom experiences a transformation that changes his life forever
 date: 2026-06-22 12:00:00
 ---
 
+[![](/website/assets/images/a-ch01/001.png)](/website/assets/images/a-ch01/001.png)
+
 The low hum of the bar wrapped around Antonio like a warm invitation as he pushed through the door of The Paw & Anchor, the scent of aged wood and spilled whiskey mingling with the faint tang of citrus from someone's drink. Neon lights from the PROWLR app still glowed faintly on his phone screen before he tucked it away, his new body drawing glances—broad shoulders straining the seams of his flannel, the beard he'd grown in thick and dark framing a smile that felt both familiar and strangely magnetic. He spotted Thom already at the corner booth, slight and compact, narrow shoulders hunched slightly over the table, hair cut in a loose undercut with longer strands flopping over hazel eyes, nervous energy in the way his fingers tapped the edge of his glass, and something in Antonio's chest tightened with recognition, a soft pull toward the kind of guy his old self might have overlooked.
 
 Thom looked up as Antonio approached, his eyes widening just a fraction before a shy grin broke through. "Antonio? God, you're even more... there in person," he said, voice light but warm, and Antonio chuckled, sliding into the seat opposite with the easy grace that came from months of learning his transformed frame. Their conversation flowed quick and easy—Thom leaning in to describe his love for late-night hikes and quiet books, Antonio sharing stories of his favorite old diners, their knees brushing under the table in a spark that sent a quiet thrill through them both. Thom's gaze kept drifting to Antonio's arms, the way they flexed when he lifted his beer, and Antonio felt that familiar rush of being seen, wanted, his own attraction blooming for the smooth lines of Thom's jaw and the way his laugh lit up the dim space between them.
@@ -12,9 +14,13 @@ By the second round, the air had thickened with unspoken heat, Thom's hand linge
 
 ---
 
+[![](/website/assets/images/a-ch01/002.png)](/website/assets/images/a-ch01/002.png)
+
 The apartment was small and warmly lit, the glow from the TV casting flickering shadows across the rumpled bedsheets where they sat side by side. On screen, the bara anime played on, its exaggerated men lunging across a sunlit beach, massive pectorals heaving and bouncing with every powerful jump, sweat-slicked fur matted in dark trails down their bellies. Thom’s slim frame was tense beside Antonio, his eyes fixed on the screen even as his thigh pressed closer. “I mean, I like being a twink,” he murmured, voice soft but edged with something raw, “but fuck, I love men like that. All that size, that power… I wish I could be one of them too.” He turned, gaze locking onto Antonio’s, and added quieter, “To be like you.”
 
 Their eyes held, the air between them thickening with heat. Both were already hard, the outline of Antonio’s cock straining against his jeans, Thom’s own erection tenting his thin sweats. Thom leaned in first, lips parting as he initiated the kiss—deep, open-mouthed, his tongue meeting Antonio’s in a slow, wet slide. Saliva mingled between them, the faint trace of that transformative energy passing unnoticed, and Thom moaned into it, the sound low and surprised, vibrating against Antonio’s mouth like it unlocked something neither had expected. The want surged hotter than it should have, Antonio pulling back for half a breath, startled by the hunger roaring in his chest, before diving back in with equal force.
+
+[![](/website/assets/images/a-ch01/003.png)](/website/assets/images/a-ch01/003.png)
 
 By the time they stripped, clothes discarded in a careless heap, Thom was trembling with need. Antonio’s hands roamed freely over smooth skin, every touch drawing gasps and shivers, nerves lighting up sharper, more electric than any hookup before. Thom arched into it, begging in a voice already thickening by a fraction, his shoulders flushing with a warmth too subtle to register yet. Antonio didn’t notice the changes stirring beneath his palms; he was lost in the way this man craved him, in the slick heat of their bodies pressing closer, in the promise of more that throbbed between them.
 
@@ -40,4 +46,10 @@ The growth rolled up into his arms and shoulders next, the narrow frame Antonio 
 
 Another hot wave pulsed up from those churning, oversized balls, and body hair erupted in its wake. It started thick and chestnut-brown around the base of his cock, spreading down over his powerful thighs in a dense pelt, then upward in a treasure trail that fanned out across his rippling abs and coated his heavy pecs in a thick mat. The fur crawled over his swelling shoulders and arms, turning them into furred slabs, before finally reaching his face—stubble roughening his jaw in seconds, thickening into a full mustache the same warm brown that curled over his upper lip, then blooming into a dense, chestnut beard that framed his transformed features. Thom groaned louder, the sensations overwhelming, every inch of new muscle and hair making him throb with raw, animal need.
 
-With one final, surging kick of energy from his balls, the transformation sealed itself in a shattering orgasm. Thom’s massive new cock erupted in thick, ropey jets, cum spraying in heavy arcs across his furred chest, his abs, his bearded face, painting the muscle bear he’d become in pearly white streaks. He cried out "fuck yeah!" body shaking through every pulse, loving the way the hot seed clung to his dense pelt and dripped down his pecs. Antonio stared, heart pounding, as the reality crashed over him—Thom was no longer the slim, smooth man he’d brought home. Watching the impossible happen, feeling the proof of what his cum could do, Antonio understood exactly what he was: a living bear factory, and he had no idea how to stop it.
+With one final, surging kick of energy from his balls, the transformation sealed itself in a shattering orgasm. Thom’s massive new cock erupted in thick, ropey jets, cum spraying in heavy arcs across his furred chest, his abs, his bearded face, painting the muscle bear he’d become in pearly white streaks. He cried out "fuck yeah!" body shaking through every pulse, loving the way the hot seed clung to his dense pelt and dripped down his pecs.
+
+[![](/website/assets/images/a-ch01/004.png)](/website/assets/images/a-ch01/004.png)
+
+Antonio stared, heart pounding, as the reality crashed over him—Thom was no longer the slim, smooth man he’d brought home. Watching the impossible happen, feeling the proof of what his cum could do, Antonio understood exactly what he was: a living bear factory, and he had no idea how to stop it.
+
+[![](/website/assets/images/a-ch01/005.png)](/website/assets/images/a-ch01/005.png)
