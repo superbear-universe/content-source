@@ -11,7 +11,7 @@ Colin cracked one eye. "That a euphemism?"
 
 "No idea." The tab wanted a photo before it would do anything. Nico assumed it was a bit, some prank feature bolted on by whoever had ripped the app apart. He didn't say that part out loud. He angled the phone toward Colin instead, silently snapping a picture.
 
-The screen filled with sliders. Rows of them, labelled for parts of the body, and under that a second set for things that weren't the body at all. Nico scrolled past the ones he didn't want to think about and stopped on the one marked chest. He moved it up, barely, more to see what the thing would do than out of any belief that it would do anything.
+The screen filled with sliders. Countless rows labelled for parts of the body, and under that, a second set for things beyond the physical. Nico scrolled past the ones he didn't want to think about and stopped on the one marked "chest". He moved it up, barely, more to see what the thing would do than out of any belief that it would do anything.
 
 Then it hit: a sudden flush of heat blooming across Colins' chest, deep and insistent, like liquid fire pooling beneath the skin. His breath caught, turning into a low, involuntary moan that surprised even him, muscles tightening and swelling just enough to strain the fabric of his shirt. The change was subtle yet unmistakable: pecs rounding out with new heft and definition, a light dusting of hair prickling into view where smooth skin had been, the sensation sending a shiver of unexpected pleasure through him.
 
