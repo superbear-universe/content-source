@@ -13,7 +13,7 @@ Colin cracked one eye. "That a euphemism?"
 
 The screen filled with sliders. Countless rows labelled for parts of the body, and under that, a second set for things beyond the physical. Nico scrolled past the ones he didn't want to think about and stopped on the one marked "chest". He moved it up, barely, more to see what the thing would do than out of any belief that it would do anything.
 
-Then it hit: a sudden flush of heat blooming across Colins' chest, deep and insistent, like liquid fire pooling beneath the skin. His breath caught, turning into a low, involuntary moan that surprised even him, muscles tightening and swelling just enough to strain the fabric of his shirt. The change was subtle yet unmistakable: pecs rounding out with new heft and definition, a light dusting of hair prickling into view where smooth skin had been, the sensation sending a shiver of unexpected pleasure through him.
+Then it hit: a sudden flush of heat blooming across Colins' chest, deep and insistent, like liquid fire pooling beneath the skin. His breath caught, turning into a low, involuntary moan that surprised himself. His muscles tightening and swelling just enough to strain the fabric of his shirt. The change was subtle yet unmistakable: pecs rounding out with new heft and definition. A light dusting of hair prickled into view where smooth skin had been, the sensation sending a shiver of unexpected pleasure through him.
 
 "Nico." His hand had already gone to his chest, pressing flat against the new weight of it. "what the hell did you do?!" The words came out rougher than intended, laced with a mix of panic and something else he couldn’t name. The fabric stretched taut, buttons straining at the new contours of his chest.
 
