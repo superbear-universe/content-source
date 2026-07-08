@@ -15,7 +15,7 @@ The screen filled with sliders. Countless rows labelled for parts of the body, a
 
 Then it hit: a sudden flush of heat blooming across Colins' chest, deep and insistent, like liquid fire pooling beneath the skin. His breath caught, turning into a low, involuntary moan that surprised himself. His muscles tightening and swelling just enough to strain the fabric of his shirt. The change was subtle yet unmistakable: pecs rounding out with new heft and definition. A light dusting of hair prickled into view where smooth skin had been, the sensation sending a shiver of unexpected pleasure through him.
 
-"Nico." His hand had already gone to his chest, pressing flat against the new weight of it. "what the hell did you do?!" The words came out rougher than intended, laced with a mix of panic and something else he couldn’t name. The fabric stretched taut, buttons straining at the new contours of his chest.
+"Nico." His hand had already gone to his chest, pressing flat against the new weight. "what the hell did you do?!" The words came out rougher than intended, laced with a mix of panic and something else he couldn’t name. The fabric stretched taut, buttons straining at the new contours of his pecs.
 
 "I don't know." Nico's thumb jerked on the slider, dragging it back down. Nothing settled. If anything the pull-back sent another ripple through Colin's shoulders, and he tried nudging it the other way to cancel that, which made it worse again. Each correction landed as a fresh jolt through Colin's frame, the henley riding up off his stomach, a button somewhere giving with a small tick of thread, his nipples pressing against the fabric of his shirt as his chest expanded out. "I'm trying to fix it, hang on, I'm trying—"
 
