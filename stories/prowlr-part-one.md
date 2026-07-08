@@ -9,7 +9,7 @@ The apartment held onto the day's heat. Above them the ceiling fan turned in slo
 
 Colin cracked one eye. "That a euphemism?"
 
-"No idea." The tab wanted a photo before it would do anything. Nico assumed it was a bit, some prank feature bolted on by whoever had ripped the app apart. He didn't say that part out loud. He angled the phone toward Colin instead, quiet about it, and took the picture.
+"No idea." The tab wanted a photo before it would do anything. Nico assumed it was a bit, some prank feature bolted on by whoever had ripped the app apart. He didn't say that part out loud. He angled the phone toward Colin instead, silently snapping a picture.
 
 The screen filled with sliders. Rows of them, labelled for parts of the body, and under that a second set for things that weren't the body at all. Nico scrolled past the ones he didn't want to think about and stopped on the one marked chest. He moved it up, barely, more to see what the thing would do than out of any belief that it would do anything.
 
