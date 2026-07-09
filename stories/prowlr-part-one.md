@@ -4,6 +4,8 @@ subtitle: Nico uses an app on Colin with unexpected consequences
 date: 2026-06-28 12:00:00
 ---
 
+[![](/website/assets/images/p-ch01/001.png)](/website/assets/images/p-ch01/001.png)
+
 The apartment held onto the day's heat. Above them the ceiling fan turned in slow, creaking circles, pushing around the smell of cold takeout and old couch cushions. Nico sat cross-legged at his end of the sofa, phone lit in his hands. Colin was stretched out beside him in a washed-out henley, eyes half shut after a double shift.
 "Okay, so this is either genius or a virus," Nico said, thumbing through the screen. He'd finally cancelled Prowlr after the last price hike and gone looking for a way around it. What he'd found was a cracked build somebody had reuploaded, Prowlr+, the plus sign doing a lot of heavy lifting for something this janky. "Found a whole tab that shouldn't be here. 'Body Editor.'"
 
