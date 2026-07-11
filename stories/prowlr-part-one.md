@@ -32,7 +32,7 @@ Colin’s initial fear sharpened into demand as his chest pushed forward another
 Colin’s thumb brushed the screen almost unconsciously, selecting the cluster labeled “Secondary Traits.” The moment he tapped it, the app seemed to unlock a cascade of connected options. A low rumble built in his throat as the changes hit all at once—his voice dropping into a deep, gravelly baritone that vibrated through his chest. “Fuck… that feels…” The words trailed into a deep, involuntary grunt as coarse dark hair sprouted across his forearms and the backs of his hands, thickening rapidly. At the same time, his jaw prickled and itched fiercely; stubble exploded into a full, wiry beard that framed his face, the sudden weight of it making every breath feel heavier and more deliberate. Heat pooled low in his belly, arousal stirring as the new growth rasped against the hem of his shirt.
 
 <video controls width="100%">
-  <source src="{{ '/website/assets/images/p-ch01/005.mp4' | relative_url }}" type="video/mp4">
+  <source src="{{ '/assets/images/p-ch01/005.mp4' | relative_url }}" type="video/mp4">
   Your browser does not support the video tag.
 </video>
 
