@@ -15,9 +15,13 @@ Colin cracked one eye. "That a euphemism?"
 
 The screen filled with sliders. Countless rows labelled for parts of the body, and under that, a second set for things beyond the physical. Nico scrolled past the ones he didn't want to think about and stopped on the one marked "chest". He moved it up, barely, more to see what the thing would do rather than out of any belief it would have an effect.
 
+[![](/website/assets/images/p-ch01/002.png)](/website/assets/images/p-ch01/002.png)
+
 Then it hit: a sudden flush of heat bloomed across Colin's chest, deep and insistent, as if liquid fire pooled beneath the skin. His breath caught, turning into a low, involuntary moan that surprised himself. His muscles tightened and swelled just enough to strain the fabric of his shirt. The change was subtle yet unmistakable: pecs rounding out with new heft and definition. A light dusting of hair prickled into view where smooth skin had been, the sensation sent a shiver of unexpected pleasure through him.
 
 "Nico." His hand had already gone to his chest, pressed flat against the new weight. "what the hell did you do?!" The words came out rougher than intended, laced with a mix of panic and something else he couldn’t name. The fabric stretched taut, buttons straining at the new contours of his pecs.
+
+[![](/website/assets/images/p-ch01/003.png)](/website/assets/images/p-ch01/003.png)
 
 "I don't know." Nico's thumb jerked on the slider, dragging it back down. The changes began to reverse. Colin’s swollen pecs slowly deflated, but the relief was short-lived. When Nico tried to nudge the slider a little further to settle it, the app glitched — sending a fresh surge of growth through Colin’s shoulders and upper chest instead. Each correction only made things worse, the henley riding up off his stomach as a button gave way with a small tick of thread. His nipples pressing firmly against the straining fabric as his chest expanded outward again. Nico yelled, "I'm trying to fix it, hang on, I'm trying—"
 
