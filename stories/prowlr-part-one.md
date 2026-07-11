@@ -27,9 +27,16 @@ Then it hit: a sudden flush of heat bloomed across Colin's chest, deep and insis
 
 Colin’s initial fear sharpened into demand as his chest pushed forward another visible inch, the seams of his henley creaking under the strain. “Give me answers—now. What is this thing?” His voice had dropped an octave, steadier, as his fingers closed around the phone and pulled it from Nico’s grip. Fascination edged in, replacing the tremor in his hands; the sliders glowed invitingly, and for the first time Colin didn’t look away from his own reflection in the dark screen. A quiet thrill stirred low in his gut, the kind that made him wonder what else those impossible controls might unlock if he dared to explore them himself.
 
+[![](/website/assets/images/p-ch01/004.png)](/website/assets/images/p-ch01/004.png)
+
 Colin’s thumb brushed the screen almost unconsciously, selecting the cluster labeled “Secondary Traits.” The moment he tapped it, the app seemed to unlock a cascade of connected options. A low rumble built in his throat as the changes hit all at once—his voice dropping into a deep, gravelly baritone that vibrated through his chest. “Fuck… that feels…” The words trailed into a deep, involuntary grunt as coarse dark hair sprouted across his forearms and the backs of his hands, thickening rapidly. At the same time, his jaw prickled and itched fiercely; stubble exploded into a full, wiry beard that framed his face, the sudden weight of it making every breath feel heavier and more deliberate. Heat pooled low in his belly, arousal stirring as the new growth rasped against the hem of his shirt.
 
+[![](/website/assets/images/p-ch01/005.mp4)](/website/assets/images/p-ch01/005.mp4)
+
 Nico’s breath caught, guilt twisting through the heat flooding his own jeans. He couldn’t look away. Colin’s shoulders broadened in a slow, powerful surge, fabric tearing at the seams while muscle packed on in thick slabs. Colin moaned openly now, a guttural sound that sent a shiver down Nico’s spine. His roommate’s chest swelled further as a firm, rounded belly pushed out against the straining buttons. The phone’s glow lit Colin’s face, highlighting the new beard’s dark bristles and the hungry glint in his eyes. Nico’s fingers twitched at his sides, caught between wanting to snatch the device back and the shameful pull to watch more. He ached to see those powerful hands, now furred and veined, explore the body the app was reshaping.
+
+[![](/website/assets/images/p-ch01/004.png)](/website/assets/images/p-ch01/006.png)
+[![](/website/assets/images/p-ch01/004.png)](/website/assets/images/p-ch01/007.png)
 
 A fresh wave rippled through Colin’s torso; his thighs thickening to match the broadening frame. A soft yet solid gut rose that he instinctively rubbed with one palm, the touch drawing another low groan. The room smelled sharper now, muskier, laced with sweat and something primal. Nico swallowed hard, arousal warring with the growing sense that he’d unleashed something irreversible, yet he stayed rooted, pulse hammering as Colin’s gaze lifted to meet his.
 
