@@ -1,0 +1,167 @@
+---
+title: Chapter 17
+subtitle: Superbear Chapter 17
+date: 2026-07-16 12:00:00
+---
+
+The warehouse had been swept twice before Nick let the men stop.
+
+He walked the floor a third time anyway. Boots on old concrete, the wide empty span of it swallowing the sound. Stacks of speaker cabinets waited along the far wall where the crew had left them, wrapped and taped and ready. The lighting rig hung dark overhead. By tomorrow night the place would be full — bodies packed shoulder to shoulder, the bass turned up until it moved through the floor and into the chest, every man in the room open and loose and easy to reach.
+
+That was the part Nick liked best. How easy they'd make it.
+
+He was used to one at a time. *Wait,* and the new one stood where he was put, silent, falling in behind him when he finally walked away. That had been the whole of what he'd ever needed to hold — one body, freshly finished, following.
+
+Tonight there would be dozens. Master had given him the doors, the floors, the men to place at them — more than Nick had ever held together at once, and he intended to keep every piece of it from slipping.
+
+*Everything in its place.* The thought settled through him, warm and clean. He liked the feeling of a thing prepared. He liked knowing where every door was, which of his men stood at each one, how the crowd would move once the music started and where it would be thickest when the moment came.
+
+Master had given him all of it. The venue, the night, the plan. Trusted him to run it.
+
+Nick's chest tightened with something close to pride, and the suit answered — a low pulse of warmth spreading out from his spine, rewarding the feeling before he had finished having it.
+
+He heard the boots on the stairs and turned.
+
+Bill came down from the mezzanine without hurrying. He never hurried. He crossed the floor with the cigar between his fingers, smoke trailing up and back over his shoulder, and the black leather of the harness caught what little light there was. The badge at its center sat dark and dull. Nick's eyes went to it the way they always did, and away again.
+
+"Cub," Bill said.
+
+The word landed somewhere under Nick's ribs and opened. He straightened without deciding to, and the suit moved with him — a soft creak of rubber pulling taut across his chest, resettling over the width of him as he squared his shoulders.
+
+"It's ready," Nick said. "Both floors. Doors covered, the loading bay sealed from the inside, men on every stairwell. Nobody moves through here tomorrow that we don't put there."
+
+Bill came to a stop in front of him. Up close he was broader than the memory of him, always — the belly, the chest under the glossy black, the sheer immovable mass of the man. He looked at Nick for a long moment, and Nick felt the look go through him, steadying, the way it always did.
+
+He didn't say anything about the floor, or the doors, or the work. Something else was sitting behind his eyes.
+
+Nick waited anyway. Some part of him was already certain what was coming — that Master would say the word, that the warmth would come with it — and it had already started to rise, hopeful and unearned, before Bill opened his mouth again.
+
+"The Den," Bill said. "The one that turned silver on you."
+
+The warmth stopped.
+
+For a second Nick didn't understand. Then he did, the way he understood most things now — a shape the suit let him feel the edges of. There had been a bar. There had been a night he had gone out and come back wrong somehow. He knew he had failed at something. He had never been able to find the thing itself, only the space where it should have been.
+
+*I don't—*
+
+The pain arrived before the thought finished.
+
+It came up through the suit all at once, a deep constricting ache that wrapped his chest and pulled tight. Nick's knees went before he understood he was falling, and the concrete came up hard beneath him. He knelt there, breath tearing out of him in ragged pulls, both hands flat against the floor because he needed something to hold onto that wasn't Bill.
+
+"Please—" The word tore loose before he could stop it. "Master, please, I didn't—"
+
+"You let something get close to you," Bill said. His voice didn't rise. It didn't need to. "Something that wasn't mine. It put its hands on what belongs to me and for a moment — a moment — you let it."
+
+*I didn't. I wouldn't.* The ache twisted deeper, wringing through his ribs. Nick's eyes stung and spilled and he didn't try to stop that either. "I wouldn't — I would never — please—"
+
+"They collect men like inventory," Bill said. "Number them. File them away in that hive of theirs until there's nothing left worth keeping. They looked at you and saw a unit." The cigar came up. Bill drew on it, slow, and let the smoke go. "They didn't know what they were touching."
+
+*No.* The word was all Nick had, and he said it aloud too, small and broken, forehead dropping nearly to the concrete. "No — please — I'm sorry, I'm sorry, please—"
+
+"You're not a number, cub." Bill crouched, the room seeming to shrink around him the way it always did, and his free hand came under Nick's chin, tipping his face up. Broad and warm against skin slick with sweat. "You're mine. Say it."
+
+"I'm yours." It broke apart on the way out, half sob, half relief, and the moment it left him the ache began to loosen.
+
+"Again."
+
+"I'm yours." Steadier this time, though his hands stayed flat against the concrete, still holding him up.
+
+The pain let go all at once.
+
+What replaced it was so much better than relief that Nick swayed where he knelt. The suit flooded him — heat pouring down through his chest and belly and out to the ends of his hands, a deep bone-level pleasure that answered the obedience and rewarded it and made him want to give more, to say it a third time unprompted, to do anything that would keep the feeling coming. Bill's hand stayed under his chin, and when he rose he drew Nick up with him, back onto his feet, steadying him there the way you'd steady something you'd just finished building.
+
+"Good," Bill said quietly. "There he is."
+
+Nick breathed. The warmth ebbed to a steady glow and stayed.
+
+Bill's thumb moved once along his jaw, then dropped away. He looked past Nick to the floor, the stacked cabinets, the rig hanging dark overhead, and something in his face eased.
+
+"Good," he said. Nothing more.
+
+He turned for the stairs, cigar trailing smoke, and left Nick standing alone on the swept concrete.
+
+---
+
+The footsteps faded. Nick stood in the quiet dimness, the residual heat of the suit humming comfortably along his spine.
+
+"I hope you're proud of yourself," a voice said.
+
+The words came from directly behind him, clear and impossibly close. Nick froze, and as he began to turn, the warehouse broke. The concrete beneath his boots simply ceased to exist, dissolving into a heavy, absolute dark. The walls fell away, the ceiling vanished, and the ambient smell of dust and old wood vanished instantly. He was dropped into a vast, featureless void where no light fell, yet he could see perfectly—only the two of them appeared to be illuminated, casting no shadows into the surrounding nothingness.
+
+Standing just paces away was his own uncorrupted self. He was dressed in the old, clean Supercub costume, the bright blue, red, and yellow fabric pristine and striking against the void, but heavy iron chains bound him by his wrists, pulling his arms straight out wide from his sides and anchoring him tautly to the unseen boundaries of the dark space.
+
+Having overtaken Nick's body entirely, the entity looked down at the trapped remains of its host. The slick, high-gloss black rubber of its own composition gleamed in the strange, sourceless light, completely claiming the physical form it had stolen. Staring out from Nick's face with its own glowing, predatory purple eyes, it looked directly into the normal, human eyes looking back up from the chains. It felt no panic, no sudden fracture of reality. Forming its intellect straight from the host's captured mind, it weaponized Nick's own thoughts into a cold, sharp disgust.
+
+"You should be quiet," the entity said, the voice low, steady, and direct, pulling the words effortlessly from the brain it now controlled. "You were small. You let things break. Before we had our Master, we were lonely. Mike didn't respect us. Master finally saw what we could become."
+
+The chained Nick strained against the cuffs until the links scraped taut, then lifted his head. “He never gave us a choice,” he said, his voice barely above a whisper. “You know that.” His gaze dropped to the rubber skin covering the body that was still his, quiet sadness settling over his face before he looked back at the entity. “We used to protect people from this. Now you’re doing it to them.”
+
+The entity’s jaw tightened as it stepped closer, its boots making no sound against the empty void. “They were dragging us down, just like you are. You keep talking about protecting people, but what did that ever give us? A costume, a few promises, and another life built around everyone else. Mike only saw the Nick he already knew. Master saw everything we could become.”
+
+Its glowing eyes narrowed. “And the moment that drone reached inside us, there you were again, filling our head with Mike and guilt, trying to pull us back into the life Master freed us from.” It stopped over the chained figure, looking down at him with cold certainty. “You aren’t the real Nick anymore. You’re the crack that drone found inside us, and I won’t let anything pry it open again.”
+
+The chained host did not argue. He did not yell. He simply looked up at the massive, rubber-clad form standing over him, and his lips curved into a quiet, deliberate smile.
+
+It was a look of pure, unadulterated pity.
+
+"You really think you're special, don't you?" Nick whispered, his arms held wide, the smile lingering. "You think you're his most important cub. But you're just a fool in a shiny suit. You're a goon on a slightly longer leash, and you don't have the slightest clue what true love or appreciation actually feel like."
+
+The entity felt a spike of venomous heat twist behind his ribs, an intolerable friction against the suit’s conditioning loop. "Shut up."
+
+Nick’s smile widened, his eyes locking directly onto the glowing purple of his double's stare. "Tell me, cub. Have you felt the sudden need to *SERVE* lately? Or did that little stint inside their hive leave you a bit corrupted yourself?"
+
+The word struck the deepest, most heavily guarded circuit in the suit.
+
+"Enough!" the entity shouted.
+
+He commanded its mass to tighten, violently slamming the internal locks shut. The chains violently whipped outward, dragging the host towards the back by his wrists into the subconscious tar, the pitying smile vanishing into the void as the light holding them vanished.
+
+The dark broke instantly. The entity snapped right back as Nick onto the warehouse floor, the quiet, empty span of the hall rushing back around him. He stood in the dim light exactly where Bill had left him, his chest heaving, his hands balled into tight fists against the slick rubber of his thighs. The room was perfectly silent. The locks were back in place.
+
+---
+
+By the next night, the silence was entirely gone, shattered by the roaring, suffocating reality of the live event.
+
+The warehouse was no longer empty; it had been replaced by a dense, sweating mass of hundreds of men packed shoulder to shoulder from the stage to the back walls. Nick stood at the elevated edge of the mezzanine stairs, surveying the audience from a distance, his hyper-tuned senses holding the entire geometry of the room.
+
+The house lights were gone, replaced by the strobing red and amber of the stage. The bass of Black Ursa thudded violently through the concrete, vibrating up through his boots and locking onto the white-hot energy coiled in his chest.
+
+The air was hot, wet, and thick with the scent of human sweat. The crowd was a pressure cooker, a packed sea of leather jackets and bare chests leaning toward the stage as one massive, heavy organism. They were raw fuel, entirely blind to the trap.
+
+Nick watched them, the residual fury of the previous night's vision melting into absolute triumph.
+
+Bill moved into the center of the floor. The crowd parted unconsciously around his massive, glossy leather harness, closing back in behind him. Bill turned to face the mezzanine, his eyes finding Nick through the strobes.
+
+*Now.*
+
+Nick stepped off the stairs, moving through the dense crowd as their attention slid off his slick rubber skin. He reached the center of the floor, stepping directly into Bill’s space. Bill’s hands came to either side of his face, tipping him up, and the kiss arrived with consuming, violent force.
+
+Heat rolled out of him in a single blinding pulse, meeting whatever was pouring out of Bill in the same instant, and the two forces slammed together and doubled and doubled again, faster than either of them could have carried it alone. The air in the room changed pressure all at once, hard enough that eardrums popped across the floor. The bass line under the music warped, dragged low and wrong for half a second before the wave swallowed it whole.
+
+Then it hit the crowd.
+
+Nick heard it more than he saw it — hundreds of seams tearing open in the same half-second, a ragged chorus of ripping denim and snapping leather, shirts giving out at the shoulders one after another down the length of the room. The smell changed next, sharp and animal, sweat turning into something thicker that rolled over the crowd in its own wave. Bodies doubled in mass around him, and he felt it as displaced air — small shoves of pressure against his skin as men who'd been narrow a breath ago suddenly weren't, shoulders knocking into shoulders that hadn't been there a second before.
+
+Men went down to the floor in twos and threes, sounds tearing out of throats that could have meant either end of feeling and meant both at once, screaming and moaning blurred past telling apart. A man near the stage threw his head back and the sound cracked halfway through into something lower, rougher, a laugh dragged through a throat that hadn't had that register a minute before.
+
+Nick stood in the middle of it and felt none of it touch him.
+
+_This is what I'm for._
+
+The wave kept rolling outward, toward the doors, toward the back wall, and everywhere it passed the floor filled in with men twice the size they'd walked in as — beards thick where jaws had been smooth, chests broad and furred under torn shirts, bodies already turning toward each other with the ease of men who'd known each other for years and had simply never noticed.
+
+Bill’s mouth left his.
+
+Nick swayed on his feet, chest heaving, the last of the heat still working through him as the transformed crowd surged and roared around them.
+
+Suddenly, a violent groan rolled across the ceiling.
+
+Nick looked up just as the corrugated steel buckled inward. The roof split open with a deafening shriek, tearing through the lighting rig in a shower of sparks and twisted metal. The music vanished beneath the impact. Men scattered as debris crashed onto the floor and cold night air poured through the wound above them.
+
+Two figures plunged through before the wreckage had finished falling.
+
+The first struck the concrete hard enough to fracture it, rising through the dust with a blue and red cape snapping behind his shoulders. The second landed beside him and drove forward at once, shield raised, scattering the nearest Brotherhood men before they could close ranks.
+
+Nick knew them before the smoke cleared.
+
+Superbear and Super Orso had found them.so.
