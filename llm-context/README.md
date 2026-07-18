@@ -20,7 +20,7 @@ The build creates:
 
 | File | Contents |
 | --- | --- |
-| `00-context-guide.md` | Knowledge-base rules and creator-maintained canon overrides |
+| `00-context-guide.md` | Knowledge-base rules, curated universe index, and creator-maintained canon overrides |
 | `10-lore.md` | Lore and planning documents |
 | `20-characters.md` | Character sheets |
 | `30-main-series.md` | Numbered Superbear chapters, in chapter order |
@@ -50,11 +50,14 @@ is preferable to pasting it into the chat message itself.
 ## Canon maintenance workflow
 
 1. Write and edit stories, character sheets, and lore in their existing folders.
-2. Record explicit rulings or known contradictions in `canon-overrides.md`.
-3. Run the build script.
-4. Review `manifest.json` for unexpected additions, classifications, or hashes.
-5. Replace the uploaded knowledge-base files with the newly generated set.
-6. Test a small set of questions whose answers span lore, characters, and story
+2. Review `universe-index.md` whenever a change affects characters, chronology,
+   lore, continuity, or the current story state. This semantic summary is
+   creator-curated and is not regenerated automatically.
+3. Record explicit rulings or known contradictions in `canon-overrides.md`.
+4. Run the build script.
+5. Review `manifest.json` for unexpected additions, classifications, or hashes.
+6. Replace the uploaded knowledge-base files with the newly generated set.
+7. Test a small set of questions whose answers span lore, characters, and story
    events. Require source-path citations in every answer.
 
 Recommended metadata to add gradually to source frontmatter:

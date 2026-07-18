@@ -23,6 +23,10 @@ When sources conflict, use this order:
 If two sources at the same priority conflict, report the conflict, cite both
 source paths, and ask for a ruling. Do not silently choose one.
 
+The curated universe index is a navigation and retrieval aid. It is not an
+additional canon source. If an index summary differs from the underlying source,
+follow the underlying source and report the discrepancy.
+
 ## Answering rules
 
 - Separate established fact, planned material, and inference.
@@ -35,6 +39,8 @@ source paths, and ask for a ruling. Do not silently choose one.
   chronology.
 - Treat numbered chapter order as narrative order unless an explicit timeline
   says otherwise.
+- Use the universe index to locate likely sources, then verify canon-sensitive
+  details against the full compiled source section.
 - Do not infer visual facts from an image filename or an empty image reference.
 - When asked to write new material, identify any new canon introduced by the
   draft so the creator can approve or reject it.

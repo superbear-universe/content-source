@@ -2,6 +2,7 @@
 
 ## Basic Information
 - **Hero Name:** Ursus Rex
+- **Nickname:** Daddy Bear
 - **Private Name:** Rex
 - **True Name:** Unknown — predates recorded language
 - **Age:** Unknown. Potentially hundreds of years old. Possibly older.

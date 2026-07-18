@@ -122,7 +122,7 @@ function Get-SourceRecord {
     $subtitle = Get-FrontmatterValue -Text $text -Name 'subtitle'
     $status = Get-FrontmatterValue -Text $text -Name 'context_status'
     if (-not $status) {
-        $status = if ($File.Name -match 'outline|knowledge') { 'planned-or-reference' } else { 'unspecified' }
+        $status = if ($File.Name -match 'outline|knowledge|framework') { 'planned-or-reference' } else { 'unspecified' }
     }
 
     $chapter = $null
@@ -207,8 +207,9 @@ $sourceFiles = Get-ChildItem -LiteralPath $sourceRootPath -Recurse -File -Filter
 $records = @($sourceFiles | ForEach-Object { Get-SourceRecord -File $_ })
 
 $instructions = [System.IO.File]::ReadAllText((Join-Path $PSScriptRoot 'instructions.md')).Trim()
+$universeIndex = [System.IO.File]::ReadAllText((Join-Path $PSScriptRoot 'universe-index.md')).Trim()
 $overrides = [System.IO.File]::ReadAllText((Join-Path $PSScriptRoot 'canon-overrides.md')).Trim()
-$guide = $instructions + "`n`n---`n`n" + $overrides + "`n"
+$guide = $instructions + "`n`n---`n`n" + $universeIndex + "`n`n---`n`n" + $overrides + "`n"
 Write-Utf8File -Path (Join-Path $outputPath '00-context-guide.md') -Content $guide
 
 $lore = @($records | Where-Object Category -eq 'lore' | Sort-Object Path)
