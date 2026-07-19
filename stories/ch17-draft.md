@@ -4,6 +4,8 @@ subtitle: Superbear Chapter 17
 date: 2026-07-16 12:00:00
 ---
 
+[![](/website/assets/images/ch17/001.png)](/website/assets/images/ch17/001.png)
+
 The warehouse had been swept twice before Nick let the men stop.
 
 He walked the floor a third time anyway, boots ringing off concrete wide enough to swallow the sound whole. Speaker cabinets waited along the far wall, wrapped and taped. The lighting rig hung dark overhead, a held breath of steel and cable.
