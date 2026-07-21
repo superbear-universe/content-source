@@ -68,6 +68,8 @@ It came up through the suit all at once, a deep constricting ache that wrapped h
 
 "You're not a number, cub." Bill crouched, the room tightened around him the way it always did. His free hand came under Nick's chin, broad and warm against sweat-slick skin, tipping his face up. "You're mine. Say it."
 
+[![](/website/assets/images/ch17/004.png)](/website/assets/images/ch17/004.png)
+
 "I'm yours." The words broke apart in a sob. Relief followed the moment they left him, and the ache began to loosen.
 
 "Again."
@@ -76,7 +78,11 @@ It came up through the suit all at once, a deep constricting ache that wrapped h
 
 The pain let go all at once.
 
-What replaced the ache was so much better than relief that Nick swayed where he knelt. The suit flooded him — heat pouring down through his chest and belly and out to the ends of his hands and legs, a deep bone-level pleasure that answered his obedience and rewarded it. It made him want to give more, to say it a third time unprompted, to do anything that would keep the feeling coming. Bill's hand stayed under his chin. When Bill rose, he drew Nick back onto his feet and steadied him, rebuilt into the man he was.
+What replaced the ache was so much better than relief that Nick swayed where he knelt. The suit flooded him — heat pouring down through his chest and belly and out to the ends of his hands and legs, a deep bone-level pleasure that answered his obedience and rewarded it. It made him want to give more, to say it a third time unprompted, to do anything that would keep the feeling coming. Bill's hand stayed under his chin.
+
+[![](/website/assets/images/ch17/005.png)](/website/assets/images/ch17/005.png)
+
+When Bill rose, he drew Nick back onto his feet and steadied him, rebuilt into the man he was.
 
 "Good," Bill said quietly. "There he is."
 
