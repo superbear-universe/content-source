@@ -100,6 +100,8 @@ The footsteps faded. Nick stood in the quiet dimness, the residual heat of the s
 
 "I hope you're proud of yourself," a voice said.
 
+[![](/website/assets/images/ch17/006.png)](/website/assets/images/ch17/006.png)
+
 The words came from directly behind him, clear and impossibly close. Nick froze. As he began to turn, the warehouse broke. The concrete beneath his boots simply ceased to exist, dissolving into a heavy, absolute dark. The walls and ceiling fell away, and the smell of dust and old wood disappeared with them. He dropped into a vast, featureless void where no light fell, yet he could see perfectly — only the two of them were illuminated, alone in the surrounding nothingness.
 
 He felt the presence standing just paces behind. He was dressed in an old, clean costume. The bright blue, red, and yellow fabric pristine and striking against the void. Heavy iron chains bound him by his wrists, pulling his arms straight out from his sides and anchoring him tautly to the unseen boundaries of the dark space. His face looked up with a deep smirk. Supercub's own face staring back at himself.
