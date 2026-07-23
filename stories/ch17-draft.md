@@ -1,5 +1,5 @@
 ---
-title: Chapter 17
+title: His Master's Cub
 subtitle: Superbear Chapter 17
 date: 2026-07-16 12:00:00
 ---
