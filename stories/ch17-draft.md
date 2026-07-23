@@ -116,6 +116,8 @@ The chained Nick strained against the cuffs until the links scraped taut, then l
 
 The entity’s jaw tightened as it stepped closer, its boots making no sound against the empty void. “They were dragging us down, just like you are. You keep talking about protecting people, but what did that ever give us? A costume, a few promises, and another life built around everyone else. Mike only saw the Nick he already knew. Master saw everything we could become.” Its violet eyes narrowed. “And the moment that drone reached inside us, there you were again, filling our head with Mike and guilt, trying to pull us back into the life Master freed us from.” It stopped over the chained figure, looking down at him with cold certainty. “You aren’t the real Nick anymore. You’re the crack that drone found inside us, and I won’t let anything pry it open again.”
 
+[![](/website/assets/images/ch17/008.png)](/website/assets/images/ch17/008.png)
+
 The chained host did not argue or yell. He simply looked up at the massive, rubber-clad form standing over him, his lips curving into a quiet, deliberate smile filled with pure, unadulterated pity.
 
 "You really think you're special, don't you?" Nick whispered, his arms held wide, the smile lingering. "You think you're his most important cub. But you're just a fool in a shiny suit. You're a goon on a slightly longer leash, and you don't have the slightest clue what true love or appreciation actually feel like."
@@ -129,6 +131,8 @@ The word struck the deepest, most heavily guarded circuit in the suit.
 "Enough!" the entity shouted.
 
 The entity commanded the suit to tighten, slamming the internal locks shut. The chains snapped outward, dragging the host backward by his wrists into the subconscious tar. His pitying smile vanished into the void as the light holding them went out.
+
+[![](/website/assets/images/ch17/009.png)](/website/assets/images/ch17/009.png)
 
 The dark broke instantly. The warehouse snapped back around the entity. It stood once more in Nick's body exactly where Bill had left him, chest heaving and hands balled into tight fists against the slick rubber of his thighs. The room was perfectly silent. The locks were back in place.
 
