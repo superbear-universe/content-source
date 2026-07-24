@@ -138,7 +138,7 @@ The dark broke instantly. The warehouse snapped back around the entity. It stood
 
 ---
 
-[![](/website/assets/images/ch17/010.png)](/website/assets/images/ch17/010.png)
+[![](/website/assets/images/ch17/010.jpeg)](/website/assets/images/ch17/010.jpeg)
 
 The next night, the silence was entirely gone, shattered by the roaring, suffocating reality of the live event.
 
@@ -155,6 +155,8 @@ Bill moved into the center of the floor. The crowd parted unconsciously around h
 *Now.*
 
 Nick stepped off the stairs, moving through the dense crowd as their attention slid off his slick rubber skin. He reached the center of the floor, stepping directly into Bill’s space. Bill’s hands came to either side of his face, tipping him up, and the kiss arrived with consuming, violent force.
+
+[![](/website/assets/images/ch17/011.jpeg)](/website/assets/images/ch17/011.jpeg)
 
 Heat rolled out of him in a single blinding pulse, meeting whatever was pouring out of Bill in the same instant, and the two forces slammed together and doubled and doubled again, faster than either of them could have carried it alone. The pressure in the room changed instantly, hard enough that eardrums popped across the floor. The bass line under the music warped, dragged low and wrong for half a second before the wave swallowed it whole.
 
