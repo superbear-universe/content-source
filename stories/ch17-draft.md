@@ -138,6 +138,8 @@ The dark broke instantly. The warehouse snapped back around the entity. It stood
 
 ---
 
+[![](/website/assets/images/ch17/010.png)](/website/assets/images/ch17/010.png)
+
 The next night, the silence was entirely gone, shattered by the roaring, suffocating reality of the live event.
 
 The once-empty warehouse now held a dense, sweating mass of hundreds of men packed shoulder to shoulder from the stage to the back walls. Nick stood at the elevated edge of the mezzanine stairs, surveying the audience from a distance, his hyper-tuned senses holding the entire geometry of the room.
