@@ -156,17 +156,17 @@ Bill moved into the center of the floor. The crowd parted unconsciously around h
 
 Nick stepped off the stairs, moving through the dense crowd as their attention slid off his slick rubber skin. He reached the center of the floor, stepping directly into Bill’s space. Bill’s hands came to either side of his face, tipping him up, and the kiss arrived with consuming, violent force.
 
-[![](/website/assets/images/ch17/011.jpeg)](/website/assets/images/ch17/011.jpeg)
-
 Heat rolled out of him in a single blinding pulse, meeting whatever was pouring out of Bill in the same instant, and the two forces slammed together and doubled and doubled again, faster than either of them could have carried it alone. The pressure in the room changed instantly, hard enough that eardrums popped across the floor. The bass line under the music warped, dragged low and wrong for half a second before the wave swallowed it whole.
 
 Then it hit the crowd.
 
+[![](/website/assets/images/ch17/011.png)](/website/assets/images/ch17/011.png)
+
 Nick heard it more than he saw — hundreds of seams tearing open in the same half-second, a ragged chorus of ripping denim and snapping leather, shirts giving out at the shoulders one after another, down the length of the room. The smell changed next, sharp and animal, sweat turning into something thicker that rolled over the crowd in its own wave. Bodies doubled in mass around him, and he felt it as displaced air — small shoves of pressure against his skin as narrow men exploded into more, shoulders knocking into shoulders that hadn't been there a second before.
 
-[![](/website/assets/images/ch17/012.png)](/website/assets/images/ch17/012.png)
-
 Men went down to the floor in twos and threes, sounds tearing out of throats from surprise, pain, and pleasure, until screams and moans blurred beyond distinction. A man near the stage threw his head back in a yell and the sound cracked halfway through into something lower, rougher, a laugh dragged through a throat that hadn't had that register a minute before.
+
+[![](/website/assets/images/ch17/012.png)](/website/assets/images/ch17/012.png)
 
 Nick stood in the middle unphased.
 
