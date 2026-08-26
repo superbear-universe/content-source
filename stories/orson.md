@@ -20,17 +20,19 @@ He took the stairs two at a time, annoyed at himself before he even reached the 
 
 The afternoon was ordinary in the worst way. Orders stacked up. The app kept pinging. Sweat stuck his shirt to his back under the delivery bag. He rode hard through the usual routes, weaving between delivery vans and people who never looked before they stepped off the curb. His body felt the way it always felt on days like this—lean and serviceable and somehow never quite enough. Narrow shoulders, smooth chest under the thin T-shirt, legs that worked hard but never looked like they belonged to someone who took up space. He tried not to notice the reflection in shop windows.
 
-One late order sat at the edge of the map, farther than he wanted to go with the light already starting to slant. He almost passed it off. Then the tip percentage flashed and he sighed, locked the bike at the curb, and walked up the short path to a classic suburban house—porch, painted railings, the kind of place that still had a real front door instead of a buzzer panel.
+One late order sat at the edge of the map, farther than he wanted to go with the light already starting to slant. He almost passed it off. Then the tip percentage flashed. He sighed, accepted it, and rode the extra distance.
 
-He climbed the three porch steps, checked the name on the bag one last time, and knocked.
+The address belonged to a classic suburban house a few blocks past the usual cluster of bars and corner stores — porch, painted railings, the kind of place that still had a real front door instead of a buzzer panel. He locked the bike at the curb, walked up the short path, climbed the three porch steps, checked the name on the bag one last time, and knocked.
 
 The door opened on a wall of ginger and green.
 
-Al filled the frame the way some men simply did—massive shoulders, a barrel chest straining a fitted forest-green tee printed with a retro bear-and-mountains scene in sunset stripes, copper hair windswept above a beard just as ginger. Dark rectangular glasses made all that size feel warmer than it had any right to. Barefoot, a single solid black band tattoo circling the upper left arm, dressed for nothing more than a Tuesday at home.
+A man appears in the door and nearly fills the entire doorway—massive shoulders, a barrel chest straining a fitted forest-green tee with a bear printed on it, copper hair windswept above a beard just as ginger. Dark rectangular glasses made all that size feel warmer than it had any right to. Barefoot, a single solid black band tattoo circling the upper left arm, dressed for nothing more than a Tuesday at home.
 
-Orson’s brain short-circuited for a second. This was exactly the kind of man he had spent years looking at from a safe distance—big, settled, hairy, relaxed in his own size. The kind of body that made Orson’s own feel even smaller by comparison. His eyes snagged on the bear graphic across Al’s chest, then on the dense hair at the collar, then on the thick arms, and he couldn’t quite pull them away fast enough.
+Orson’s brain short-circuited for a second. This was exactly the kind of man he had spent years looking at from a safe distance—big, settled, hairy, relaxed in his own size. The kind of body that made Orson’s own feel even smaller by comparison. His eyes snagged on the bear graphic across the man’s chest, then on the dense hair at the collar, then on the thick arms. He realized a beat too late that he was staring and dropped his gaze to the order on his phone.
 
-“Delivery?” Al’s voice was low and easy, faintly amused without being sharp.
+“I have a delivery for... Al?” Orson managed.
+
+The man’s mouth curved under the beard. Not laughing at him—just warm. “That’s me.” His voice was low and easy, faintly amused without being sharp.
 
 Orson held the bag out like an offering and somehow managed to fumble the handoff. The bag bumped Al’s forearm. Their fingers brushed. Orson pulled back too fast and almost dropped his phone.
 
@@ -38,27 +40,39 @@ Al’s mouth curved under the beard. Not laughing at him—just warm. “You goo
 
 “Yeah. Sorry. Long shift.” Orson kept his eyes somewhere around Al’s collarbone, which was still too much. Everything about the man was the thing Orson had wanted and never once known how to reach for.
 
-Al took the bag, set it just inside the door without looking away, and studied him for a moment longer than a normal tip exchange required. The glasses made the big face gentler. The pale eyes were steady. He had clearly clocked the way Orson’s gaze kept drifting— the shirt, the arms, the whole solid presence of him—and instead of calling it out he just let the silence sit, easy and unthreatening.
+Al took the bag and stepped back to set it inside. Beside the door sat a half-filled cardboard box—old clothes, a couple of books, miscellaneous things apparently on their way out. Something tan-brown with two little rounded ears poked over one edge.
 
-“You look like you could use a break,” Al said. Not a question.
+Orson looked at it before he could stop himself.
 
-Orson gave a tight little shrug that tried to be casual and failed. “Just the usual.”
+Al followed his eyes, then leaned down and pulled the thing free. It unfolded into a soft bear hood, made from nubby tan fleece with a handmade seam running down the middle and two little ears sewn into the crown. He turned it once in one enormous hand, brushing a thumb over the fabric as though he had almost forgotten it was in the box.
 
-Al’s gaze flicked down once more—quick, thoughtful—then back up. Something quieter settled behind the easy expression, like he had recognized a younger version of a look he had seen before. He reached just inside the door, into what looked like a cardboard box of odds and ends sitting on a side table, and came back with a soft tan-brown hood. Two round ears. A seam down the center that looked hand-sewn rather than store-bought. Handmade, a little ridiculous, and strangely soft in his hands.
+“It's an old bear hood. Want it?” he asked.
 
-He held it out.
+Orson looked from the hood back to him. “What?”
 
-“Here. Take this.”
+“I’m clearing this stuff out anyway.” Al held it toward him with the same casual ease he’d taken the delivery bag. “Take it.”
 
-Orson blinked. “I—what?”
+Orson let out a small, uncertain laugh. “No, that’s okay. I don’t need—”
 
-“Instead of a tip.” Al’s voice stayed light, almost offhand, but the look behind the glasses was more deliberate now. “Or in addition. Whatever. Been meaning to clear that box out. Figured it might actually suit somebody who wants the look.” He pressed the hood into Orson’s hands before Orson could refuse. The fabric was warm from the house, denser and softer than it looked. “Might suit you better than it ever suited me.”
+“Sure you do.”
 
-The line landed and stayed there, still ambiguous, but no longer floating in pure vagueness. Al had seen the hunger Orson hadn’t managed to hide, recognized it for what it was, and decided the odd little hood belonged with someone who actually wanted what it suggested. Whether Al knew anything more than that remained impossible to tell.
+There was nothing pushy in the way he said it. If anything, he sounded faintly amused by Orson's confusion.
 
-Orson closed his fingers around the hood because there was nothing else to do with them. “Thanks. I—yeah. Thanks.”
+Orson hesitated, then took it.
 
-Al nodded once, easy. “Ride safe.”
+The fleece was warmer and heavier than he expected, soft against his palms. Up close, the stitching was uneven in places, the eye openings clearly cut by hand rather than a machine. It looked a little ridiculous. It also looked strangely inviting.
+
+Al looked at him for another second, a small smile settling beneath the ginger beard.
+
+“Think it'll suit you.”
+
+Something in the way he said it made Orson look up, but Al’s expression gave him nothing useful to work with. Maybe he had noticed the staring. Maybe this was some older guy’s gently amused way of telling him he wasn’t nearly as subtle as he thought he was.
+
+Or maybe it was just a free hood from a box of junk.
+
+“Thanks,” Orson said, closing his fingers around it. “Seriously.”
+
+Al nodded once. “Ride safe.”
 
 The door closed. Orson stood on the porch for a few seconds longer than necessary, the soft weight of the hood in his hands, pulse still too high. He told himself it was just a weird gift from a weirdly generous customer. He told himself the heat under his skin was only from the ride and the stairs. He stuffed the hood into the side pocket of his bag instead of the main compartment, as if that made any difference, and went back down the path to the bike.
 
