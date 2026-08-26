@@ -26,7 +26,7 @@ The address belonged to a classic suburban house a few blocks past the usual clu
 
 The door opened on a wall of ginger and green.
 
-A man appears in the door and nearly fills the entire doorway—massive shoulders, a barrel chest straining a fitted forest-green tee with a bear printed on it, copper hair windswept above a beard just as ginger. Dark rectangular glasses made all that size feel warmer than it had any right to. Barefoot, a single solid black band tattoo circling the upper left arm, dressed for nothing more than a Tuesday at home.
+A man stood in the doorway, nearly filling it—massive shoulders, a barrel chest straining a fitted forest-green tee with a bear printed on it, copper hair windswept above a beard just as ginger. Dark rectangular glasses made all that size feel warmer than it had any right to. Barefoot, a single solid black band tattoo circling the upper left arm, dressed for nothing more than a Tuesday at home.
 
 Orson’s brain short-circuited for a second. This was exactly the kind of man he had spent years looking at from a safe distance—big, settled, hairy, relaxed in his own size. The kind of body that made Orson’s own feel even smaller by comparison. His eyes snagged on the bear graphic across the man’s chest, then on the dense hair at the collar, then on the thick arms. He realized a beat too late that he was staring and dropped his gaze to the order on his phone.
 
@@ -36,7 +36,7 @@ The man’s mouth curved under the beard. Not laughing at him—just warm. “Th
 
 Orson held the bag out like an offering and somehow managed to fumble the handoff. The bag bumped Al’s forearm. Their fingers brushed. Orson pulled back too fast and almost dropped his phone.
 
-Al’s mouth curved under the beard. Not laughing at him—just warm. “You good?”
+Al steadied the bag without comment and gave Orson a brief, questioning look. “You good?”
 
 “Yeah. Sorry. Long shift.” Orson kept his eyes somewhere around Al’s collarbone, which was still too much. Everything about the man was the thing Orson had wanted and never once known how to reach for.
 
@@ -46,7 +46,7 @@ Orson looked at it before he could stop himself.
 
 Al followed his eyes, then leaned down and pulled the thing free. It unfolded into a soft bear hood, made from nubby tan fleece with a handmade seam running down the middle and two little ears sewn into the crown. He turned it once in one enormous hand, brushing a thumb over the fabric as though he had almost forgotten it was in the box.
 
-“It's an old bear hood. Want it?” he asked.
+“It’s an old bear hood. Want it?” he asked.
 
 Orson looked from the hood back to him. “What?”
 
