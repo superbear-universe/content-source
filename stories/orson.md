@@ -136,7 +136,7 @@ Orson breathed it in and rolled his hips.
 
 His entire body had become too sensitive to keep still. The hairs on his stomach pulled when he moved. The mattress pressed into the new mass of his ass and thighs. His cock throbbed against the loosened boxers, thicker now, trapped awkwardly beneath fabric that no longer fit. His balls swung with each small motion, full and hot between his legs, and every shift of their weight sent pleasure climbing through him.
 
-The sensitivity reached deeper too. A faint tingle stirred in the cleft of his ass, centred on the tight ring of muscle there. His body had not opened or changed shape; the untouched nerves had simply come alive. The pressure of his own weight against the mattress was suddenly enough to make the muscle flutter. When he shifted, a slow spark ran inward and left behind a needy ache for something solid to press against him.
+The sensitivity reached deeper too. A faint tingle stirred in the cleft of his ass, centred on the tight ring of muscle there. It felt like the nerves had come alive. The pressure of his own weight against the mattress was suddenly enough to make the muscle flutter. When he shifted, a slow spark ran inward and left behind a needy ache for something solid to press against him.
 
 His mind supplied the rest before he could stop it: hands spreading his new ass, a mouth on him, a thick cock pushing into all that raw sensitivity while someone held his heavier body in place.
 
