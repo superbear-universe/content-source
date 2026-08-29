@@ -90,88 +90,152 @@ He would only try it on for a second. Just to see how it looked.
 
 **Act Two — Night One: Discovery**
 
-The hood was still warm from his grip when Orson caught his own reflection in the dresser mirror. He’d already stripped down for bed by then, shirt off, down to his boxers, and the mirror gave him what it always gave him: narrow shoulders, a flat unremarkable chest, the faint scatter of hair on his shins that never amounted to more than that. Twenty-five years of knowing this reflection. Twenty-five years of wishing it belonged to someone else.
-
-He looked at the hood in his hands, then back at himself.
-
-Just to see how it looked, he’d told himself on the way home. He believed that a little less with every second he stood there.
-
 He pulled it on anyway.
 
-The fleece settled soft and heavy against his scalp, warmer than fabric had any right to be. He tugged the lower edge down until it crossed just above his cheekbones, straightened the two crooked little ears with a couple of fingers, and found his own reflection through the rough, hand-cut eye holes: his nose, his mouth, his clean-shaven jaw, still small and familiar under the seam running straight down the middle of his forehead.
+The fleece settled soft and heavy against his scalp, warmer than fabric had any right to be. He tugged the uneven lower edge across his upper cheeks, adjusted the two crooked little ears with his fingertips, and found his reflection through the rough, hand-cut eye openings. His nose, his mouth, his clean-shaven jaw—all of it still small and familiar beneath the handmade seam running down the centre of the hood.
 
-He almost laughed. A skinny guy in a bear hood, standing in his underwear at midnight — it looked ridiculous. It also looked, in a way he couldn’t quite explain, like it belonged there.
+He almost laughed. A skinny guy in a bear hood, standing in his boxers at midnight. It looked ridiculous. It also looked, in a way he couldn’t explain, as though it belonged there.
 
 Then the warmth started.
 
-It began right at his hairline, where the fleece met skin, a slow heat that sank inward instead of sitting on the surface. It spread down through his skull and into the back of his neck while he was still watching himself in the mirror, still telling himself this was nothing.
+It began at his hairline, where the fleece touched his skin, a slow heat sinking through his scalp and spreading into the back of his neck. Orson watched himself for another second, waiting for it to fade.
 
-It didn’t stay nothing for long. One second it was a warm itch under the hood; the next it had poured down through his chest and pooled low in his stomach, hot and unmistakably sexual. His cock jumped against his underwear. His balls tightened, then began to swell, heavy and insistent, building toward more than he was ready for.
+Instead it dropped through him.
 
-“Fuck…” The word slipped out before he could catch it.
+The heat poured down his chest and stomach and gathered between his legs, hot enough to make his breath catch. His cock jumped against his boxers and began to swell before he had fully understood what he was feeling. His balls drew tight, then pushed heavily against the fabric as a deep churn started inside them. Another pulse rolled through, and they grew again—fuller, weightier, producing something that seemed to flood straight into his blood and feed the heat rushing through the rest of him.
 
-His knees went first. He grabbed the edge of the dresser to stay upright, and when the next wave hit — deeper, faster, a churn low in his balls that rolled outward in one long, scalding wave — his eyes screwed shut on their own. He couldn’t watch this and feel it at the same time. He wasn’t sure he could stay standing either way. He let himself sink back onto the edge of the bed and gave in to it.
+“Fuck…”
 
-From there it came in waves, each one bigger than the last, each one starting low in his balls and rolling out through the rest of him.
+His knees loosened. He caught the dresser with both hands, but the next wave came too hard for him to remain there. It started in his balls and rolled outward in one long scalding surge, tightening his cock, flooding his stomach and climbing into his chest. His eyes screwed shut. He couldn’t watch this and feel it at the same time.
 
-His shoulders went first, a deep, satisfying pressure spreading outward and down, bone and muscle pushing against skin that had no choice but to stretch to keep up. A low sound left him, half groan, half something closer to relief. His chest filled and thickened at once, a new weight settling over muscle he could feel gathering underneath. His stomach rounded out, pushing gently against his waistband, softening even as something firmer built beneath it. His arms thickened. His hands felt heavier when he flexed them, thicker through the palm, the fingers blunter. His hips widened until the elastic at his waist dug in and then gave way completely, and beneath him he felt his ass rounding out too, fuller, heavier against the mattress. His thighs and calves swelled with the same dense, muscular weight.
+He stumbled back until the bed caught him behind the knees and dropped onto its edge.
 
-“God… that’s—” Another wave cut the thought short. He moaned, soft and involuntary, the sound roughening as it left his throat.
+The pressure reached his shoulders first. They pushed outward beneath his skin, widening until his arms hung differently at his sides. The change travelled down through them, packing soft weight over new muscle, thickening his upper arms and forearms until his hands looked too small by comparison. Then his palms spread against the mattress and his fingers grew heavier and blunter beneath him, catching in the sheets when he flexed them.
 
-Hair came next, and it came everywhere at once: a prickling, tingling rush across his chest and down the center of his stomach, thick enough that he could feel individual strands catching against each other as they grew. It swept over his shoulders and down his back, coarser there, then along his forearms and down his legs until every stretch of new skin had something growing out of it. He dragged a hand across his own chest without meaning to and felt it — dense, wiry, more hair than he’d had in his whole life. The friction alone made his hips shift.
+His chest followed, deepening with every breath. Muscle gathered under the flat plane of it while a warm layer of softness settled over the top, giving it a breadth and weight he had never felt there before. His stomach swelled beneath his wandering hand, first firm, then yielding, rounding forward until it pressed over the waistband of his boxers. Orson dragged his palm across the new curve and heard himself make a low sound of approval.
 
-His neck thickened enough that swallowing felt different. His jaw ached with a slow, spreading pressure as it broadened under his own fingers, his cheeks filling out to match it, his brow growing heavier over eyes he still couldn’t see. Something rougher pushed through along his jaw and up over his cheeks in a warm, itching wave, climbing all the way to his ears before it finally settled, fuller and faster than any ordinary five-o’clock shadow. The fleece went snug against his skull for a moment, stretched, then eased as whatever was happening to the shape of his head found its new size. Even his hair under the hood felt different: heavier, denser between his fingers when he raked a hand through it.
+The sound startled him almost as much as the body did.
 
-The air itself seemed to change, warmer and muskier, something underneath it that hadn’t been there when he’d sat down.
+Another churn low in his balls sent the change through his hips. They spread against the mattress as his ass filled out behind him, growing rounder and heavier, lifting him slightly as the flesh packed itself onto his frame. His waistband cut into him. The elastic held for one strained second, then snapped at his hip and loosened around him.
 
-His cock hadn’t stopped throbbing since the first wave hit, and it kept growing right along with the rest of him, longer, thicker, the skin pulled tight enough to ache in the best possible way. His balls hung heavier between his thighs, still churning, still pouring out whatever it was that kept feeding the change, and every pulse from them lit up nerves he hadn’t known he had. His whole body had gone hypersensitive — the drag of his own fingers against his stomach, the friction of hair against hair as his thighs shifted, all of it sparking through him like static.
+His thighs thickened under the torn fabric, forcing his knees farther apart. Muscle crowded onto them beneath a softer outer weight, and his calves tightened until his feet shifted against the floor to take the altered angle of his legs. Even sitting still felt different now. There was more of him meeting the mattress, more weight travelling through his hips, more strength waiting beneath every involuntary movement.
 
-He couldn’t stop moving. His hips rolled without him deciding to roll them. A hand slid down over his stomach and lower, not quite grabbing, just testing the new weight of himself, and the sound that came out of him didn’t sound like anything he’d made before — lower, rougher, unashamed.
+The next pulse made him arch.
 
-Somewhere underneath the moaning, a thought arrived that wasn’t quite his. *God, yes. More.* Bold and loose, sure of itself in a way he had never once managed to be.
+Hair prickled into life across his chest and ran down the centre of his stomach, thousands of tiny points pressing through skin that had always been almost smooth. He swept his hand through it and found coarse curls already thick enough to catch between his fingers. The growth spread along his forearms and over his legs, prickling thickly across skin that had never held more than a faint scattering. A lighter covering worked across his shoulders and down his widening back, teasing every place it emerged before settling against him.
 
-For half a second his stomach dropped, a flicker of *that’s not mine.* Then, just as fast, the drop leveled out, because underneath the boldness was something he recognized completely. The want. The want had always been his. This was just the first time anything had let him have it without flinching.
+The friction changed everything. Hair dragged against hair when his thighs shifted. The new pelt across his stomach rasped under his palm. Each small contact travelled straight to his cock, which was still lengthening against the ruined front of his boxers, and into the swollen balls hanging lower between his legs. They kept churning, each heavy pulse feeding another rush of heat into him.
 
-“Please…” he heard himself say, quiet, almost pleading. “Don’t stop.”
+His neck thickened until swallowing felt strange. Pressure spread along his jaw beneath his fingertips, broadening the bone and filling his cheeks to match. His brow grew heavier behind the hood. Then the skin along his jaw began to itch, and rough hair pushed through in a warm sweep that climbed over his cheeks toward his ears. He rubbed at it and found a beard forming beneath his hand, already fuller than any stubble he had ever managed to grow.
 
-The waves slowed. The pressure that had been building under his skin eased into something steadier, a deep, thrumming fullness that didn’t ache anymore, that didn’t feel unfinished anymore. His breathing slowed with it. For a while he just sat there, eyes still shut, one hand resting on a stomach that didn’t feel like his stomach, learning the shape of himself through touch alone.
+The hood tightened around his skull. For a few seconds the fleece pressed close enough to hold every building ache against him; then it stretched and eased as his head found its new shape. His curls grew fuller beneath it, crowding around his fingers when he slipped a hand under the edge. The familiar brown warmed toward something richer as the heat passed through the roots, though with his eyes shut he knew the change only as greater weight and softness against his scalp.
 
-Then, slowly, he opened his eyes.
+His own scent reached him next. Sweat, warm fleece and something deeper beneath both of them: musky, masculine, unmistakably his even though he had never smelled this way before.
 
-He didn’t look down first. He made himself stand — his own legs felt different under him now, heavier, more solid — and turned back toward the dresser mirror on purpose, the way he hadn’t let himself all night. This time it wasn’t a whim. He wanted to see.
+Orson breathed it in and rolled his hips.
+
+His entire body had become too sensitive to keep still. The hairs on his stomach pulled when he moved. The mattress pressed into the new mass of his ass and thighs. His cock throbbed against the loosened boxers, thicker now, trapped awkwardly beneath fabric that no longer fit. His balls swung with each small motion, full and hot between his legs, and every shift of their weight sent pleasure climbing through him.
+
+The sensitivity reached deeper too. A faint tingle stirred in the cleft of his ass, centred on the tight ring of muscle there. His body had not opened or changed shape; the untouched nerves had simply come alive. The pressure of his own weight against the mattress was suddenly enough to make the muscle flutter. When he shifted, a slow spark ran inward and left behind a needy ache for something solid to press against him.
+
+His mind supplied the rest before he could stop it: hands spreading his new ass, a mouth on him, a thick cock pushing into all that raw sensitivity while someone held his heavier body in place.
+
+Bram would need both hands to hold all of him still now.
+
+The thought arrived with such easy certainty that Orson nearly opened his eyes. He could picture Bram’s broad hands sinking into his hips, hear himself asking for more without stammering or swallowing the words. Another thought followed, warmer and even less restrained: Orson would let him do whatever he wanted with all that new weight.
+
+A laugh slipped out of Orson, low and breathless. The nerve of it should have embarrassed him. Instead he liked the man who had thought it.
+
+There was a brief drop in his stomach, a flicker of that didn’t sound like me. Then he rolled his hips again, deliberately this time, and felt the new weight of his ass shift beneath him.
+
+The wanting was his. So was the relief.
+
+“Please…” His changed voice came out lower, roughened by the thickening of his throat. He smiled at the sound of it. “Don’t stop.”
+
+The waves began to slow. The pressure under his skin eased into a deep, steady fullness. His shoulders stopped pushing outward. His thighs settled heavily against the edge of the bed. The churn in his balls softened to a warm throb, and his breathing gradually found a rhythm he could control.
+
+For a while he remained there with his eyes shut, one hand resting on a stomach that curved into his palm and the other braced beside a thigh twice as substantial as the one he remembered. Nothing felt unfinished. He could sense the complete shape of himself in the way the mattress carried him.
+
+He wanted to see it.
+
+Orson opened his eyes.
+
+The room had not changed. The dresser stood where it always had; the same clothes lay folded badly on the chair, the same light from the street slipped through the curtains. Only his position within it felt wrong. The bed sat lower beneath his weight, and the dresser looked narrower when he faced it.
+
+He stood carefully. His thighs pushed together before he widened his stance, and the new balance came to him with surprising ease. The torn boxers sagged from his hips. He hooked his thumbs into them, pushed them down over the heavy curve of his ass and stepped free.
+
+Then he faced the mirror.
 
 A stranger looked back at him.
 
-The face in the mirror was broader than his, older somehow, cheeks and jaw filled out under a full reddish-brown beard that hadn’t existed ten minutes ago. Heavier brows sat over eyes that weren’t the warm hazel-brown he’d looked at in this same mirror his whole life; they’d gone greener, grayer, something new entirely. For one long second he genuinely didn’t know the man he was looking at.
+The face was broader than his, more mature in the way the filled cheeks, thick jaw and heavy brow sat together. A full reddish-brown beard covered the clean-shaven lower face he had seen only minutes before, dense along the jaw and rounded beneath his chin. Auburn-brown curls showed around the edges of the hood.
 
-Then he did.
+For one long second, Orson genuinely did not know the man in the reflection.
 
-It was in the eyes first, the same spacing, the same shape, even in the new color. Then the nose, straight and softly rounded at the tip, exactly where it had always been. Then his mouth, the same proportions under the mustache, the same set to the corners. He felt his own face move before he’d decided to move it, some private disbelief tugging at it, and the smile that broke through was unmistakably his: the same lift in the cheeks, the same narrowing at the eyes he’d had in every photo since he was a kid. He would have known that smile anywhere. He knew it now.
+Then the man blinked when he did.
 
-He let his eyes drop lower and took in the rest of it. His chest was wide and hair-thick now, his belly a solid round weight he could see as well as feel. Auburn curls, thicker and warmer than the brown he’d worn his whole life, showed at the edge of the hood, and his shoulders filled the mirror with a breadth that hadn’t been there an hour ago. He turned enough to catch his back and the new weight in his ass, thick and round, a shape he’d have killed for a day ago. Every part of him was bigger. Every part of him was covered in the dense reddish hair he’d wanted his whole life and never once managed to grow.
+The eyes were still the same distance apart, still rounded into the same open shape at the outer corners. The nose beneath them remained straight, projecting into the same softly rounded tip. His mouth had kept its proportions under the moustache, including the level set of the corners that always made him look more serious than he felt.
 
-His cock stood out thick and flushed from a nest of hair he didn’t recognize, and lower, his balls hung full and heavy, still faintly, pleasantly warm.
+He touched his cheek. The stranger copied him.
 
-He wrapped one hand around himself — bigger than his hand had ever been, and so was what it was holding — and the first slow stroke nearly buckled his knees again. Everything about his body had turned electric. He cupped his balls with the other hand, felt their new weight settle into his palm, felt them draw up tighter the second he touched them, and the sound that left him was half laugh, half moan.
+Disbelief tugged at his mouth, and the smile that broke through belonged to him completely. His cheeks lifted. His eyes narrowed. The beard changed the frame of it, but not the expression itself. He had seen that smile in photographs from every part of his life.
 
-“Fuck, look at me…”
+“Oh my god,” he whispered, and the man in the mirror grinned wider.
 
-He gave in completely.
+He let his gaze travel down.
 
-His hips rolled into his own grip, slow at first, then faster, urgent, his free hand roaming over the new belly and chest like he couldn’t quite believe either of them were his to touch. The hair dragged against his palm, thick and coarse and perfect. He caught himself grinning at the mirror between moans, goofy, unguarded, nothing like the version of himself who couldn’t hold eye contact on a doorstep that afternoon. He smelled like musk and heat and skin, and it only made him want more.
+His shoulders crowded the reflection, broad enough to make his head look newly proportioned between them. A deep chest sat beneath dense reddish hair, substantial muscle softened by enough weight to move when he breathed. His upper arms were massive beside it, his forearms thick all the way into enlarged hands. Below, his belly hung in a warm round curve, soft over the strength gathered underneath and just beginning to fold over his hips.
 
-He stroked harder, thumbing over the head on every upstroke, the new size of him filling his fist in a way that made his breath catch. His other hand stayed busy — squeezing the heavy curve of his gut, dragging through the hair on his chest, reaching back to grip one thick cheek just to feel the solid give of it. Every touch pulled another low sound out of him, rougher now, almost continuous.
+He turned sideways. His back swept wide beneath the lighter reddish covering across his shoulders. His ass pushed out behind him, round and heavy enough to change the line of his whole body. Powerful thighs filled the space below it, narrowing only gradually into thick calves. Nothing about him was cut or polished. He looked built to take up room: soft, muscular, hairy and solid.
 
-“Yeah… just like that…” The words came out without thinking, half under his breath, half spilled into the quiet room. He watched himself do it in the mirror, watched the thick, hairy body move under his own hands, and the sight alone pushed him closer.
+Exactly the kind of man Orson had spent years watching from a distance.
 
-The orgasm built low and deep, from the same place the first wave of heat had started, and when it hit it took his whole body with it: his back arching, a broken sound tearing out of his throat, thick, heavy cum spilling over his fist in pulse after pulse until his legs finally gave out and he sat down hard on the edge of the bed. He kept his hand moving through the last of it, milking every aftershock, breathing like he’d run his entire delivery route twice over, soft little moans still slipping out with each residual throb.
+He turned back to the mirror and looked lower.
 
-For a long time afterward he just sat there, big and warm and thoroughly wrecked, one hand resting on the curve of a belly that hadn’t existed an hour ago. The apartment was quiet. The city hummed on outside, indifferent to what had just happened four floors up.
+His cock stood thick and flushed from a dense nest of reddish hair. His balls hung full beneath it, large enough to pull visibly away from his body, still faintly warm from the churn that had powered everything else. The ache between his ass cheeks pulsed with his heartbeat, untouched and intensely awake.
 
-Eventually the exhaustion settled in. He stood, still a little unsteady, and climbed under the covers. The sheets felt different against all that new skin and hair. He settled onto his back, the solid weight of his own body pressing into the mattress in a way that felt right, and reached up to find the edge of the hood.
+Orson closed one enlarged hand around his cock.
+
+The first slow stroke nearly folded him. His knees bent and his free hand slapped against the dresser, rattling the small objects on top. Pleasure shot from his fist through his stomach and chest, pulling a rough moan from him before he could lower his voice.
+
+He looked at himself again and laughed under his breath.
+
+“Fuck, look at me.”
+
+This time the words carried no disbelief. He liked the way the broad, hairy man said them. He liked watching that body move when he rolled his hips into his own grip, liked the dense hair sliding beneath his free hand as he traced the weight of his chest and belly. His palm disappeared into the curve of his stomach. When he squeezed his ass, his fingers sank into solid warmth and sent a spark into the hypersensitive ring of muscle beneath his fingers.
+
+He stroked faster.
+
+The man in the mirror moved with him, shameless and eager, his belly shifting above his fist and his heavy thighs tensing each time his hips pushed forward. Orson imagined Bram behind him again, those hands taking over, and heard himself moan at the thought.
+
+“Yeah,” he murmured to the reflection. “You’d like that.”
+
+He had no idea whether he meant Bram or himself. The uncertainty made him grin.
+
+He stroked harder, thumbing over the head on every upstroke, the new size of him filling his fist in a way that made his breath catch.
+
+“Yeah… just like that…” The words came out without thinking, half under his breath, half spilled into the quiet room. He watched himself do it in the mirror, watched the thick, hairy body move under his own hands, and the sight alone pushed him closer. “Fuck, I look so—” Another moan cut him off. “I want it so bad…”
+
+The orgasm built low and deep, from the same place the first wave of heat had started. It didn’t crest the way his orgasms usually did. It rose. A long, rolling pressure that started in his balls and kept climbing, spreading outward through his stomach, his chest, the insides of his thighs, the base of his spine. His whole body tightened around it.
+
+When it finally broke, it took him apart.
+
+A loud, broken moan tore out of his throat as the first pulse hit — thick, heavy cum surging up and spilling over his fist in a long, powerful jet. Then another. And another. His balls pulsed hard in his palm, emptying in deep, rhythmic throbs that matched the waves rolling through the rest of him. Every muscle clenched and released. His back arched. His toes curled against the floor. He kept stroking through it, milking himself, and the pleasure only climbed higher, wave after wave of pure, full-body intensity that left him shaking and loud and completely undone.
+
+“Fuck—fuck, oh my god—”
+
+He couldn’t stop the sounds. They kept spilling out of him, raw and open, as his cock kept shooting, more than he’d ever produced in his life, coating his fist and dripping down onto the floor between his feet. The contractions went on and on, each one dragging another long moan from deep in his chest, until his legs finally gave out and he sat down hard on the edge of the bed. Even then the aftershocks kept coming, softer now but still rolling through him, his balls still twitching, his hole still fluttering and sensitive and empty.
+
+For a long time he sat there, big and hot and shaking, one hand loose around his spent cock and the other resting on the curve of his belly. His breathing gradually filled the silence left behind.
+
+Eventually the exhaustion reached him. He climbed beneath the covers and settled onto his back. The mattress dipped beneath his weight, and the sheets rasped against hair wherever they touched him. He lay there enjoying the simple fact that his body pressed back against the bed now, substantial enough to feel anchored in it.
+
+At last he reached up and found the uneven edge of the hood.
 
 He pulled it off.
 
-The soft fleece left his head. He set it on the nightstand without looking, closed his eyes, and let the last of the warmth carry him under.
+The fleece left his head. Orson placed it on the nightstand, close enough that he could have reached it without sitting up, and closed his eyes.
 
-Sleep came slower than he expected, his mind still turning over every second of it: the churn low in his balls, the stranger in the mirror who’d turned out to be him, the way his own voice had sounded saying yes to something he’d never once let himself say yes to out loud. By the time he finally drifted off, he was already working out how soon he could try it again.
+Sleep did not come immediately. His mind kept circling the churn low in his balls, the unfamiliar face that had resolved into his own smile, the sound of his voice speaking without asking permission first. Most of all he replayed the thought of Bram and the startling ease with which he had wanted to be seen, held and used by him.
+
+By the time Orson finally drifted off, he had already decided this would not be the only night.
