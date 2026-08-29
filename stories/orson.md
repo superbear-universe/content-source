@@ -268,7 +268,7 @@ He had a full shift ahead of him. The body the hood gave him was too alive, too 
 
 So he got up, showered, and dressed in the clothes that fit the smaller frame.
 
-He worked the shift on autopilot. Orders stacked, the app pinged, he rode the same routes he always rode, and none of it stayed in his head longer than the time it took to hand over a bag. By the time the light began to slant and the last of the dinner rush thinned out, he had already decided. Tonight would not be another night alone in his room.
+He worked the shift on autopilot. Orders stacked, the app pinged, he rode the same routes he always rode, and none of it stayed in his head longer than the time it took to hand over a bag. The light started to slant, the dinner rush thinned, and somewhere in between he made up his mind: tonight he was wearing the hood out.
 
 ---
 
