@@ -786,9 +786,9 @@ It was just how he was now.
 
 "Is it — I mean, is that it? Is that permanent?"
 
-"I think so." Orson turned to him, and the grin that broke over his face under the beard was the same grin he'd had at twelve and at nineteen and at twenty-five, and Bram's whole expression changed when he saw it. "I think this is me now."
+"I think so." Orson turned to him, grinning. "I think this is me now."
 
-Bram started laughing first. Then Orson did, and then neither of them could stop — great helpless wheezing laughter, the pair of them naked and useless on a wrecked bed at eleven at night, Bram holding a small tan hood in one hand with two little ears sticking up through his fingers, both of them completely out of their depth and neither of them the slightest bit sorry about it.
+Bram's whole expression changed when he saw it. He started laughing first. Then Orson did, and then neither of them could stop — great helpless wheezing laughter, the pair of them naked and useless on a wrecked bed at eleven at night, Bram holding a small tan hood in one hand with two little ears sticking up through his fingers, both of them completely out of their depth and neither of them the slightest bit sorry about it.
 
 "Six *months*," Bram said, wiping his eyes. "In the same hallway."
 
