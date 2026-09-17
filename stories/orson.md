@@ -76,7 +76,7 @@ Or maybe it was a free hood out of a box of junk.
 
 The door closed. Orson stood on the porch a few seconds longer than he needed to, soft weight in both hands, pulse still running high. He tucked the hood into the side pocket of the bag rather than the main compartment, as though that meant something, and rode off.
 
-# Act two
+## Act two
 
 The rest of the shift went by without registering. The fleece brushed his hip every time he stood on the pedals. At home he set the hood on the dresser, showered the day off, ate standing up, and did not put it away.
  
