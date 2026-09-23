@@ -19,7 +19,7 @@ Bram glanced up, gave him the easy half-smile of a man acknowledging a neighbour
 
 Six months in the same building. Same floor, near enough. He had rehearsed the whole thing in the shower more than once and never delivered a word of it.
 
-The shift was ordinary in the worst way. Heat coming up off the asphalt, the app pinging, sweat gluing his shirt flat to a back he didn't much like the shape of. At a red light he caught himself in a shop window and looked away fast, the way he always did.
+The shift was ordinary in the worst way. Heat coming up off the asphalt, the app pinging, sweat gluing his shirt flat to a back he didn't much like the shape of. At a red light he caught himself in a shop window and looked away fast. He'd rather not look at himself.
 
 The last order of the afternoon sat out past the bars and the corner stores, far enough that he nearly declined it. The tip percentage flashed. He sighed and rode the extra distance.
 
@@ -27,11 +27,11 @@ It was a proper house, porch and painted railings, a real front door instead of 
 
 The door opened onto a wall of ginger and green.
 
-The man filled the frame — shoulders that had to angle slightly, a barrel chest straining a forest-green tee with a bear and pine trees printed across it, copper hair tousled above a beard the same warm red. Dark rectangular glasses somehow made all that mass friendly instead of alarming. He was barefoot, in black shorts, with two solid black bands tattooed round one enormous upper arm and freckled forearms furred thick with ginger hair.
+The man filled the frame — shoulders that had to angle slightly, a barrel chest straining a forest-green tee with a bear and pine trees printed across it, copper hair tousled above a beard the same warm red. Dark rectangular glasses somehow made all that mass friendly instead of alarming. He was barefoot, in black shorts, with a solid black band tattooed round one enormous upper arm and freckled forearms furred thick with ginger hair.
 
 Orson's brain stalled out entirely.
 
-This was the exact thing. Not a type in the abstract — _the_ thing, the shape he had been looking at from a safe distance and never once said out loud. He understood a beat too late that he had been staring, and dropped his gaze to his phone.
+This was exactly his type — the kind of man he'd wanted from a safe distance for years, never once admitting it, and now standing right in front of him. He understood a beat too late that he had been staring, and dropped his gaze to his phone.
 
 "I've got a delivery for — Al?"
 
@@ -75,16 +75,16 @@ Or maybe it was a free hood out of a box of junk.
 
 "Ride safe."
 
-The door closed. Orson stood on the porch a few seconds longer than he needed to, soft weight in both hands, pulse still running high. He tucked the hood into the side pocket of the bag rather than the main compartment, as though that meant something, and rode off.
+The door closed. Orson stood on the porch a few seconds longer than he needed to, soft weight in both hands, pulse still running high. He tucked the hood into the side pocket of his jeans rather than his bag, as though that meant something, and rode off.
 
 **Act Two**
 -----------
 
-The rest of the shift went by without registering. The fleece brushed his hip every time he stood on the pedals. At home he set the hood on the dresser, showered the day off, ate standing up, and did not put it away.
+The rest of the shift went by without registering. Orson arrived back home, tired after a long day of work. He set the hood on the dresser in his bedroom and did not put it away.
 
-By midnight the building had gone quiet. He undressed down to his boxers and stopped, the way he always did, at the sight of himself in the dresser mirror: narrow shoulders, and a chest with nothing on it, no bulk and no hair, a smooth flat plane running down into a stomach that had a faint suggestion of muscle and no weight behind it. His arms were long and his legs were longer, with a fine dusting on them that only made the rest of him look barer. Twenty-five years old and built like a coat hanger with good intentions.
+By midnight the building had gone quiet. He undressed down to his boxers to prepare for bed and stopped, the way he always did, at the sight of himself in the dresser mirror: narrow shoulders, and a chest with nothing on it, no bulk and no hair, a smooth flat plane running down into a stomach that had a faint suggestion of muscle and no weight behind it. His arms were long and his legs were longer, with a fine dusting on them that only made the rest of him look barer. Twenty-five years old and built like a coat hanger with good intentions.
 
-The hood sat on the dresser beside his keys.
+The hood still sat on the dresser.
 
 _Think it'll suit you._
 
@@ -108,7 +108,7 @@ His knees went. He caught the edge of the dresser with both hands, wood biting i
 
 He staggered back until the bed caught him behind the knees and sat down hard.
 
-His shoulders went first. They pushed outward under the skin with a deep, satisfying ache, wider and wider, until his arms hung at a different angle from his body. The change ran down them — mass crowding on, muscle underneath and a warm padding over it, upper arms swelling until his own hands looked wrong on the ends of them. Then his palms spread against the mattress and his fingers grew thicker and blunter beneath him, catching in the sheet when he flexed.
+It was his shoulders he felt first — pressure building deep under the skin, then pushing outward, wider by the second, and it took him a full second to understand what that meant: he could feel himself growing. They pushed outward under the skin with a deep, satisfying ache, wider and wider, until his arms hung at a different angle from his body. The change ran down them — mass crowding on, muscle underneath and a warm padding over it, upper arms swelling until his own hands looked wrong on the ends of them. Then his palms spread against the mattress and his fingers grew thicker and blunter beneath him, catching in the sheet when he flexed.
 
 His chest came next. It deepened with every breath, pushing out and out, muscle gathering under the flat of it and a soft heavy layer settling on top, until the weight of his own pecs was a thing he could feel shift when he moved. His stomach swelled under his wandering hand — firm at first, then yielding, rounding forward until it pressed out over the waistband and hung there, warm and full.
 
@@ -202,9 +202,7 @@ He stroked faster. Thumbed the head on every upstroke. The size of himself filli
 
 He spread his stance and let his hips do the work, fucking up into his fist, and imagined Bram behind him. Not a fantasy so much as a plan. Bram's hands taking over on his hips, Bram's beard against the back of his neck, Bram pushing into all that new, greedy sensitivity while he begged for it in this new voice.
 
-"Yeah," he told the reflection, low and filthy. "You'd let him. You'd ask nicely and everything."
-
-He had no idea whether he meant Bram or himself, and the not-knowing made him grin so wide the beard moved.
+"Yeah," he told the reflection, low and filthy. "You'd let him. You'd beg if you had to."
 
 The orgasm built low and deep, out of the same place all the heat had come from in the first place. It didn't crest the way his orgasms usually crested. It _rose_. A long climbing pressure that started in his balls and kept coming, spreading out through his stomach, up into his chest, down the insides of his thighs, into the base of his spine, until every part of him was tight around it and he was making a continuous low sound with no shape to it at all.
 
@@ -228,8 +226,6 @@ Sleep didn't come immediately. His mind kept circling — the churn low in his b
 
 He was still turning it over when exhaustion closed over the top of him and pulled him under.
 
-Whatever ran backward through him in the hours after that, it ran without a witness.
-
 **Act Three**
 -------------
 
@@ -243,7 +239,7 @@ The rest of it had gone too, and that was worse. He noticed the absence of it th
 
 The hood sat on the nightstand looking like a bit of fleece.
 
-He turned the facts over while the shower ran. Hood on, body changed. Hood off, body back. The magic lived in the fleece, not in him, and it was only ever a loan. He thought about Al in the doorway with the thing in one big freckled hand. _Think it'll suit you._ Whether that had been a joke, a kindness or a warning, there was no way to ask now.
+He turned the facts over while the shower ran. Hood on, body changed. Hood off, body back. The magic lived in the fleece, not in him, and it was only ever a loan. He thought about Al in the doorway with the thing in one big freckled hand. _Think it'll suit you._ Whether that had been a joke, a kindness or a warning.
 
 He almost put it back on before work. Then he pictured handing a bag of pad thai to a stranger while wearing bear ears and a body that got hard from the friction of its own thighs, and left it where it was.
 
@@ -494,7 +490,7 @@ He got out of the clothes that no longer fit, laid the hood on the nightstand wh
 **Act Four**
 ------------
 
-He got through the day the way you get through a support beam with a spoon. A coworker messaged asking if he was still alive; he sent back a thumbs up and nothing else.
+He got through the day the way you dig through a wall with a spoon. A coworker messaged asking if he was still alive; he sent back a thumbs up and nothing else.
 
 At half past eight he locked his door, pulled the hood on, and was through the whole thing in under two minutes.
 
@@ -585,7 +581,7 @@ He got the door open. He heard Bram say his name once, out of a chair he was sti
 
 He did not go to work.
 
-He lay on top of his bed in the clothes he had run home in until the light came up, and then he lay there some more. There were two messages from Bram from just after eleven and he could not make himself open either of them. Around noon he got as far as putting the hood in the bottom drawer under the winter jumpers and telling himself out loud that he was finished with it. He got about forty minutes of believing that.
+He lay on top of his bed in the clothes he had run home in until the light came up, and then he lay there some more. There were two messages from Bram from just after eleven and he could not make himself open either of them. Around noon he got as far as putting the hood in the bottom drawer under the winter jumpers and telling himself out loud that he was finished with it.
 
 The rest of the day he sat on the floor with his back against the bed, running it again: the way Bram's hands had stilled on him, the noise he'd made, the expression Orson had catalogued as horror in the half-second he allowed himself to look — and which now, after eight hours of analysis, he suspected might have been something else. Not that it mattered. He had been seen. The one good thing he'd worked up the nerve to reach for had watched him turn back into nobody.
 
@@ -609,7 +605,7 @@ Orson closed his eyes.
 
 He opened the door.
 
-Bram was standing there in the charcoal V-neck and the boots, and he did not look composed at all. He looked like a man who had rehearsed something in a stairwell and lost it on the way up. His hair was a mess. He was holding his own elbow.
+Bram was standing there in the charcoal V-neck and the boots, and he did not look composed at all. He looked like a man who had rehearsed something in his head and lost it on the way here. His hair was a mess. He was holding his own elbow.
 
 He looked at Orson, the real one, small and clean-shaven in an ancient T-shirt, and his shoulders came down about an inch.
 
@@ -667,7 +663,7 @@ He stood in front of him. Turned the fleece over once. Let it wait.
 
 "You're enjoying this," Bram said.
 
-"I've never got to enjoy any of it." Orson looked at the little crooked ears, and then at Bram, and he was smiling before the hood had even touched him. "Ready?"
+"You have no idea." Orson looked at the little crooked ears, then at Bram, and was already smiling before the hood touched him. "Ready?"
 
 "Put it on."
 
@@ -699,7 +695,9 @@ Bram was off the couch before he'd finished the sentence.
 
 They got the bedroom door about half-closed behind them.
 
-Bram put him on the bed on his back and took his time, which he had promised and which turned out to be true. He mapped him with both hands: chest, belly, the underside of him, the heavy insides of his thighs. Orson lay there and let himself be handled and told him exactly how it felt in words that would have killed the man he'd been that morning.
+Bram put him on the bed on his back and took his time, exactly like he'd promised. He mapped him with both hands: chest, belly, the underside of him, the heavy insides of his thighs.
+
+"Nobody's ever touched me like this," Orson said, arching into his palm. "I didn't know I could feel like this. God — don't stop."
 
 "Turn over," Bram said eventually, hoarse.
 
@@ -711,13 +709,15 @@ Orson turned over and got his knees under him and arched his back, and heard Bra
 
 "Now. _Now_ —"
 
-Bram lined up and pushed in slow, and Orson felt every inch of the stretch, and it was so much better than anything his imagination had managed that his eyes rolled and his whole back shuddered. He was so sensitive that the first movement nearly finished him. He said so. Loudly.
+Bram lined up and pushed in slow, and Orson felt every inch of the stretch, and it was so much better than anything his imagination had managed that his eyes rolled and his whole back shuddered. He was so sensitive that the first movement nearly finished him.
+
+"Wait — wait, don't move, I'm gonna—" He caught himself on the edge, breathing hard. "Not that, I'm fine. Just give me a second or this is over in ten strokes."
 
 Bram bottomed out and stayed there, breathing hard, hands sunk into the heavy curve of Orson's hips.
 
 "God, you take it well."
 
-"I was _built_ for it." He pushed back onto him and grinned into the pillow at the strangled sound it produced. "Come on. Wreck me."
+"I was _built_ for it." He pushed back onto him and grinned into the pillow at the strangled sound it produced. "Come on. Wreck me."
 
 Bram did. He set a rhythm and then abandoned it for something harder, both hands gripping, the whole bed moving, Orson meeting him on every thrust with his ass shifting heavy under Bram's palms and his belly swinging and every single stroke dragging over the place inside him that made his arms give out. He begged for it constantly, cheerfully, filthily, and it only made Bram fuck him harder.
 
@@ -725,7 +725,7 @@ Bram did. He set a rhythm and then abandoned it for something harder, both hands
 
 "Don't — don't you dare pull out — I want it, I want all of it, fill me up —"
 
-Bram drove in deep, and held, and came, and Orson felt it — the pulse of it, the heat spreading out inside him, Bram's whole weight coming down over his back with his beard against Orson's shoulder and his hands still locked on his hips.
+Bram drove in deep, buried to the root, and held there, locked against him. His moans climbed harder and harder with every thrust until a raw roar tore out of him as he came, the first thick spurt of cum hitting the same instant the sound did. Then it kept coming — heavy ropes of it, hot and dense, pumping load after load straight into Orson, flooding him deep until the heat of it spread out through his guts and up his spine. Bram's whole weight crashed down over his back, their skin slick with sweat, beard scraping the wet skin of Orson's shoulder, breath still ragged against his neck, both hands clamped on his hips so tight the fingers dug into the soft flesh and kept him pinned in place while Bram emptied everything he had.
 
 And then something moved.
 
@@ -743,7 +743,7 @@ It felt like a decision being made in his body rather than his head. Like someth
 
 Then it broke.
 
-The orgasm came up through him with a force that lifted him off his forearms, and he shouted as it hit, a raw wide-open sound with nothing behind it but the noise. He came so hard the first pulse hurt. Then another, and another, thick and heavy, spilling out beneath him, his balls emptying in long deep throbs while every muscle in his body clenched and let go and clenched again. He clamped down hard around Bram and heard him swear and felt him shudder through his own aftershocks. It went on far past what should have been possible, wave after wave, until Orson was shaking too hard to hold himself up and simply went down flat with Bram on top of him.
+The orgasm came up through him with a force that lifted him off his forearms, and he shouted as it hit, a raw wide-open sound with nothing behind it but the noise. He came so hard the first pulse of cum shooting out hurt. Then another, and another, thick and heavy, spilling out beneath him, his balls emptying in long deep throbs while every muscle in his body clenched and let go and clenched again. He clamped down hard around Bram and heard him swear and felt him shudder through his own aftershocks. It went on far past what should have been possible, wave after wave, until Orson was shaking too hard to hold himself up and simply went down flat with Bram on top of him.
 
 For a long time neither of them could speak.
 
@@ -781,7 +781,7 @@ Orson grabbed the fleece off him and pulled it on. Nothing. Pulled it off. Nothi
 
 "It's not doing anything," he said. "It's — it's just a _hood_."
 
-He listened for the tide to start going out, and it didn't, and he understood that it wasn't going to.
+He kept bracing anyway, out of habit, some part of him waiting for it to hit any second. It never came.
 
 It was just how he was now.
 
@@ -795,18 +795,14 @@ It was just how he was now.
 
 Bram's whole expression changed when he saw it. He started laughing first. Then Orson did, and then neither of them could stop — great helpless wheezing laughter, the pair of them naked and useless on a wrecked bed at eleven at night, Bram holding a small tan hood in one hand with two little ears sticking up through his fingers, both of them completely out of their depth and neither of them the slightest bit sorry about it.
 
-"Six _months_," Bram said, wiping his eyes. "In the same hallway."
+It wound down slowly. Bram flopped back onto the pillows and dragged him down after him, the hood slipping from his fingers somewhere in the fall, and Orson went, sprawling heavy and hot across half the bed, and Bram made a noise of enormous satisfaction at the weight of him and wrapped both arms round it and did not let go.
 
-"I had whole conversations planned!"
+Orson's hand found it a while later, still tangled in the sheets between them. He picked it up without really thinking about it, turning it over once, thumb moving slow over the fabric.
 
-"You could have just —"
+Bram watched him do it.
 
-"I _know_."
+"What do you think would happen," he said, "if I put it on?"
 
-Bram flopped back onto the pillows and dragged him down after him, and Orson went, sprawling heavy and hot across half the bed, and Bram made a noise of enormous satisfaction at the weight of him and wrapped both arms round it and did not let go. The hood ended up on the nightstand somewhere behind them, out of the way, harmless.
+Orson went still, the hood resting in his open palm.
 
-"Stay," Bram said into the back of his neck, already going under.
-
-"Yeah," Orson said. "I'm not going anywhere."
-
-He lay there in the dark under the weight of Bram's arm, listening to him drop off mid-sentence, and grinned at the ceiling until he fell asleep too.
+"Only one way to find out," he said.
