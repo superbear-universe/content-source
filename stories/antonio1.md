@@ -1,7 +1,7 @@
 ---
 title: Antonio the Bear factory
 subtitle: Thom experiences a transformation that changes his life forever
-date: 2026-06-22 12:00:00
+date: 2026-06-24 12:00:00
 ---
 
 [![](/website/assets/images/a-ch01/001.png)](/website/assets/images/a-ch01/001.png)

@@ -1,6 +1,6 @@
 # Story index
 
-Status: **published** = in `stories/`; **draft** = `workshop/stories/<slug>/draft.md`; **planned** = outline only.
+Status: **published** = on Tumblr (dates below are the Tumblr publish dates) and in `stories/`; **draft** = `workshop/stories/<slug>/draft.md`; **planned** = outline only.
 
 ## Main series
 
@@ -10,7 +10,7 @@ Status: **published** = in `stories/`; **draft** = `workshop/stories/<slug>/draf
 | 2 | Bear you out | `bear-you-out` | published | — |
 | 3 | Shared Caffeine and Property Damage | `shared-caffeine-and-property-damage` | published | — |
 | 4 | The Last Decision | `the-last-decision` | published | [workshop](stories/the-last-decision/) |
-| 4.5 | A bear hug of belonging | `a-bear-hug-of-belonging` | draft | [workshop](stories/a-bear-hug-of-belonging/) |
+| 4.5 | A bear hug of belonging | `a-bear-hug-of-belonging` | draft (not on Tumblr) | [workshop](stories/a-bear-hug-of-belonging/) |
 | 5 | The corruption | `the-corruption` | published | [workshop](stories/the-corruption/) |
 | 6 | Protective Bear Instinct | `protective-bear-instinct` | published | — |
 | 7 | The Wrong Room | `the-wrong-room` | published | — |
@@ -37,7 +37,7 @@ Status: **published** = in `stories/`; **draft** = `workshop/stories/<slug>/draf
 | Prowlr+ - Part One | `prowlr-part-one` | published | [workshop](stories/prowlr-part-one/) |
 | Prowlr+ - Part Two | `prowlr-part-two` | published | [workshop](stories/prowlr-part-two/) |
 | SERVE -- Expansion, or Mixed Messages | `expansion` | published | — |
-| Bear Hood | `orson` | published (rewrite in PR #10 branch) | [workshop](stories/orson/) |
+| Bear Hood | `orson` | partially published: Acts 1–2 (Afterdark, Sep 28); Act 3 onward is `workshop/stories/orson/draft-act3-onward.md` | [workshop](stories/orson/) |
 | The lodge | `the-lodge` | planned | [workshop](stories/the-lodge/) |
 | Beary morning scene | `beary-morning-scene` | draft | [workshop](stories/beary-morning-scene/) |
 

@@ -133,3 +133,11 @@ Source: `SynologyDrive/Writing/sb-universe/`. Safe to delete this file once you 
 | `stories/ch9/ch9-the-origin-of-supercub.md` | already published (identical or near-identical in repo) |
 | `stories/orson/bearhood-v5.md` | already published (identical or near-identical in repo) |
 | `stories/orson/claude.md` | byte-identical to stories/orson/bearhood.md |
+
+## Changes after checking Tumblr (2026-09-29)
+
+Publication history follows `superbear-chronicles.tumblr.com` and `superbear-afterdark.tumblr.com`.
+
+- Front-matter `date` set to the Tumblr publish date for: `the-conversion` (Apr 10), `ch14` (Apr 25), `ch15` (May 27), `ch16` (Jun 29), `ch17` (Aug 7), `expansion` (May 28, Part One; Part Two was Aug 4), `prowlr-part-one` (Jul 13), `prowlr-part-two` (Aug 16), `antonio1` (Jun 24), `orson` (Sep 28). The time of day was kept from the old value.
+- `orson`: only Acts 1–2 are published. Act 3 onward moved from `stories/orson.md` to `workshop/stories/orson/draft-act3-onward.md`.
+- Renamed archive files so none looks like a final version: `the-conversion/_archive/draft-final-pre-edit.md` → `draft-pre-edit.md`; `the-corruption-of-supercub/_archive/draft-final-pre-edit.md` → `draft-pre-edit.md`.
