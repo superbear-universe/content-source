@@ -1,7 +1,7 @@
 ---
 title: The Conversion
 subtitle: "Superbear Chapter 13:"
-date: 2026-04-11 01:42:00
+date: 2026-04-10 01:42:00
 ---
 
 ![](https://64.media.tumblr.com/8b9e7cff21d0796480296ecd8ecc2434/e793511e566a669a-6e/s640x960/9d864b44eb8c2012ed9030321357f63d997d0957.png)

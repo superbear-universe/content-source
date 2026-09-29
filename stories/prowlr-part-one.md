@@ -1,7 +1,7 @@
 ---
 title: Prowlr+ - Part One
 subtitle: Nico uses an app on Colin with unexpected consequences
-date: 2026-06-28 12:00:00
+date: 2026-07-13 12:00:00
 ---
 
 [![](/website/assets/images/p-ch01/001.png)](/website/assets/images/p-ch01/001.png)

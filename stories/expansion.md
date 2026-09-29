@@ -1,7 +1,7 @@
 ---
 title: SERVE -- Expansion, or Mixed Messages
 subtitle: "a Tale of Two Recruitments - *featuring Nick AKA Supercub*"
-date: 2026-01-26 19:04:00
+date: 2026-05-28 19:04:00
 author: SERVE-714
 ---
 
