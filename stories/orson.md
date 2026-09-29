@@ -1,13 +1,11 @@
----
-title: Bear Hood
-subtitle: Orson wears a bear hood that gifts him a new life.
-date: 2026-09-03 12:00:00
----
+**title** Bear Hood  
+**subtitle** Orson wears a bear hood that gifts him a new life.  
+**date** TBA
 
 **Act One**
 -----------
 
-The elevator opened at the wrong moment, the way it always did.
+The elevator opened at exactly the wrong moment. It always did.
 
 Orson was halfway down the corridor with the delivery bag over one shoulder, keys still warm in his fist, and then Bram was there — coming out of the elevator with a grocery bag hanging off two fingers and his phone in the other hand, taking up more of the hallway than one man ought to. Charcoal V-neck pulled across his chest. Dark hair, short at the sides, wavy on top. That beard. Boots landing heavy and unhurried on the old carpet.
 
